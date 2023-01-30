@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-1-29|COOKING FOR CHATS BIG DATE|pending||
 |2023-1-27|LIE DETECTOR TIME - RETURN OF MY DAD - RETURN OF WENDY|[https://youtu.be/o\_qfB0lIQ7A](https://youtu.be/o_qfB0lIQ7A)||
 |2023-1-22|KIDS LOVE ME, FISH LOVE ME, WOMEN FEAR ME|[YouTube (blocked worldwide)](https://youtu.be/yMRQciUfgNc) / [Download on MEGA](https://mega.nz/folder/1iRQ3QoQ#5MZuCnKPNnAwNyL4aJPL_Q)|Blocked on YouTube by Disney. Download via MEGA link.|
 |2023-1-20|الأريكة العربية إن شاء الله تصل جميع لا يذهبون إلى الأعمال الخيرية|[https://youtu.be/yZoCrHkT7Ic](https://youtu.be/yZoCrHkT7Ic)|The Arabic Couch stream.|
