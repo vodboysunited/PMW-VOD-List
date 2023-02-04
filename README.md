@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-3|LETS GO NEW SHOW LOTS OF WOMEN LARGE AND IN CHARGE - ODD JOBS AT 6PM|[https://youtu.be/f-UpfNFRBcA](https://youtu.be/f-UpfNFRBcA)||
 |2023-2-1|STRAP IN STRAP ON PORNOGRAPHY IS A SIN|[https://youtu.be/ETzG4-8nbEE](https://youtu.be/ETzG4-8nbEE)||
 |2023-1-29|COOKING FOR CHATS BIG DATE|[https://youtu.be/J2RZiHSuTew](https://youtu.be/J2RZiHSuTew)||
 |2023-1-27|LIE DETECTOR TIME - RETURN OF MY DAD - RETURN OF WENDY|[https://youtu.be/o\_qfB0lIQ7A](https://youtu.be/o_qfB0lIQ7A)||
