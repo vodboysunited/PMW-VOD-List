@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-5|CATCHING DUBS LIKE IM MISSING SHOWERS, OFTEN. MOMMY, MANSIONS, AND GAMERSUPPS|[https://youtu.be/sku9gHUA4Js](https://youtu.be/sku9gHUA4Js)||
 |2023-2-3|LETS GO NEW SHOW LOTS OF WOMEN LARGE AND IN CHARGE - ODD JOBS AT 6PM|[https://youtu.be/f-UpfNFRBcA](https://youtu.be/f-UpfNFRBcA)||
 |2023-2-1|STRAP IN STRAP ON PORNOGRAPHY IS A SIN|[https://youtu.be/ETzG4-8nbEE](https://youtu.be/ETzG4-8nbEE)||
 |2023-1-29|COOKING FOR CHATS BIG DATE|[https://youtu.be/J2RZiHSuTew](https://youtu.be/J2RZiHSuTew)||
