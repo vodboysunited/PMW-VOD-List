@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-13|REVISED? ARABIAN NIGHTS? STRONGHOLD? MAGIC MONDAY ON A MONDAY??|[https://youtu.be/W9SiMMurvkk](https://youtu.be/W9SiMMurvkk)||
 |2023-2-10|CHAT PRESENTS POWERPOINTS LIVE|[https://youtu.be/u2TKUyJJzaM](https://youtu.be/u2TKUyJJzaM)||
 |2023-2-8|HIGH LAUGH YOU LOSE AND THICK HUGE PLUMP|[https://youtu.be/t7-RYhIo4OE](https://youtu.be/t7-RYhIo4OE)||
 |2023-2-5|CATCHING DUBS LIKE IM MISSING SHOWERS, OFTEN. MOMMY, MANSIONS, AND GAMERSUPPS|[YouTube (blocked in US)](https://youtu.be/sku9gHUA4Js) / [Download on MEGA](https://mega.nz/file/dvolzKKB#2RMqWjRIRqFaSsKkm46te1cEX7C-ZbnhJC0Qo1vM8mU)|Blocked for copyright in US on YT. Use VPN or use MEGA link to download.|
