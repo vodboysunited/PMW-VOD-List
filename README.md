@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-19|MEDIA SHARE TIME BABYYYYY|[https://youtu.be/jpDx6CCJgIA](https://youtu.be/jpDx6CCJgIA)||
 |2023-2-17|CRINGE YOU DRINK NO KIDS ALLOWED I CANNOT BE WITHIN 100 FEET OF CHILDREN OR I WILL BE IN VIOLATION OF MY PAROLE CRINGING, DRINKING|[https://youtu.be/nJ8qRxOgKpc](https://youtu.be/nJ8qRxOgKpc)||
 |2023-2-15|FEAR PONG @ 6 PM PST|[https://youtu.be/PeyQZfdLGpc](https://youtu.be/PeyQZfdLGpc)||
 |2023-2-13|REVISED? ARABIAN NIGHTS? STRONGHOLD? MAGIC MONDAY ON A MONDAY??|[https://youtu.be/W9SiMMurvkk](https://youtu.be/W9SiMMurvkk)||
