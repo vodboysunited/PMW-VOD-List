@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-24|NEWLEYWED GAME W/ @ ALLUUX AND SOME RANDOM FANS THAT SHOWED UP|[https://youtu.be/ty1KtS3YcVk](https://youtu.be/ty1KtS3YcVk)||
 |2023-2-22|RICE CAKES AND LATINAS|[https://youtu.be/oKbVMtHpQUo](https://youtu.be/oKbVMtHpQUo)||
 |2023-2-19|MEDIA SHARE TIME BABYYYYY|[YouTube (Blocked)](https://youtu.be/jpDx6CCJgIA) / [MEGA](https://mega.nz/file/syR2mSDS#JgKv1RSiZxpI_q0RjjYgSI2It7UKUESH3t8wTRcundk)|Copyright blocked worldwide on YouTube. Download via MEGA link.|
 |2023-2-17|CRINGE YOU DRINK NO KIDS ALLOWED I CANNOT BE WITHIN 100 FEET OF CHILDREN OR I WILL BE IN VIOLATION OF MY PAROLE CRINGING, DRINKING|[https://youtu.be/nJ8qRxOgKpc](https://youtu.be/nJ8qRxOgKpc)||
