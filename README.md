@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-2-26|REACTING TO VIDEOS FOR 2 HOURS STRAIGHT AND ONE HOUR GAY|[https://youtu.be/Exh4QOFhsI8](https://youtu.be/Exh4QOFhsI8)|There was a cut in the stream. This archive includes both segments of stream.|
 |2023-2-24|NEWLEYWED GAME W/ @ ALLUUX AND SOME RANDOM FANS THAT SHOWED UP|[https://youtu.be/ty1KtS3YcVk](https://youtu.be/ty1KtS3YcVk)||
 |2023-2-22|RICE CAKES AND LATINAS|[https://youtu.be/oKbVMtHpQUo](https://youtu.be/oKbVMtHpQUo)||
 |2023-2-19|MEDIA SHARE TIME BABYYYYY|[YouTube (Blocked)](https://youtu.be/jpDx6CCJgIA) / [MEGA](https://mega.nz/file/syR2mSDS#JgKv1RSiZxpI_q0RjjYgSI2It7UKUESH3t8wTRcundk)|Copyright blocked worldwide on YouTube. Download via MEGA link.|
