@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-3|BOWLING A PERFECT 300|[https://youtu.be/E7VuD8bL7NQ](https://youtu.be/E7VuD8bL7NQ)||
 |2023-3-1|MY BALLS MY SHAFT MY TAINT MY ANOOS|[https://youtu.be/LBT9C56c0Z8](https://youtu.be/LBT9C56c0Z8)||
 |2023-2-26|REACTING TO VIDEOS FOR 2 HOURS STRAIGHT AND ONE HOUR GAY|[https://youtu.be/Exh4QOFhsI8](https://youtu.be/Exh4QOFhsI8)|There was a cut in the stream. This archive includes both segments of stream.|
 |2023-2-24|NEWLEYWED GAME W/ @ ALLUUX AND SOME RANDOM FANS THAT SHOWED UP|[https://youtu.be/ty1KtS3YcVk](https://youtu.be/ty1KtS3YcVk)||
