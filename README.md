@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-7|MAGIC MONDAY ON A TUESDAY - TWO TITTIES TWO MASTERS|[https://youtu.be/ORlAZJ17pBw](https://youtu.be/ORlAZJ17pBw)||
 |2023-3-5|GREATEST HITS + WHO IS THE MOLE|[https://youtu.be/a5I4nnfx67w](https://youtu.be/a5I4nnfx67w)|There was a cut at the beginning of stream. This archive includes that segment. Also, stream was cut short by Cox and didn't come back up.|
 |2023-3-3|BOWLING A PERFECT 300|[https://youtu.be/E7VuD8bL7NQ](https://youtu.be/E7VuD8bL7NQ)||
 |2023-3-1|MY BALLS MY SHAFT MY TAINT MY ANOOS|[https://youtu.be/LBT9C56c0Z8](https://youtu.be/LBT9C56c0Z8)||
