@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-10|LA IRL STREAM 6:45 PST|[https://youtu.be/YELkmHx8lt4](https://youtu.be/YELkmHx8lt4)||
 |2023-3-8|HIGH LAUGH YOU LOSE + WHO IS THE MOLE GAME DOUBLE FEATURE ALEX IS HERE SHE HAS FAT PALMS|[https://youtu.be/RVFaDoeQdn4](https://youtu.be/RVFaDoeQdn4)||
 |2023-3-7|MAGIC MONDAY ON A TUESDAY - TWO TITTIES TWO MASTERS|[https://youtu.be/ORlAZJ17pBw](https://youtu.be/ORlAZJ17pBw)||
 |2023-3-5|GREATEST HITS + WHO IS THE MOLE|[https://youtu.be/a5I4nnfx67w](https://youtu.be/a5I4nnfx67w)|There was a cut at the beginning of stream. This archive includes that segment. Also, stream was cut short by Cox and didn't come back up.|
