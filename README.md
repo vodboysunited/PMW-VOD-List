@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-17|YOU CRINGE YOU DRINK|[https://youtu.be/939-m2Mh56k](https://youtu.be/939-m2Mh56k)||
 |2023-3-15|YOUR FAVORITE STREAMER WATCHED ME NUT IN A TENT|[https://youtu.be/iQebI\_rDNrM](https://youtu.be/iQebI_rDNrM)||
 |2023-3-10|LA IRL STREAM 6:45 PST|[https://youtu.be/YELkmHx8lt4](https://youtu.be/YELkmHx8lt4)||
 |2023-3-8|HIGH LAUGH YOU LOSE + WHO IS THE MOLE GAME DOUBLE FEATURE ALEX IS HERE SHE HAS FAT PALMS|[https://youtu.be/RVFaDoeQdn4](https://youtu.be/RVFaDoeQdn4)||
