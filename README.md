@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-22|CHAT TALENT SHOW BUT IM STILL LOOKING FOR THE TALENT|[https://youtu.be/mXZguhhn6O0](https://youtu.be/mXZguhhn6O0)||
 |2023-3-19|BOYS NIGHT - PROSTITUTION - OPENING EVERY CS CASE - 400K IS ON THE LINE - WILL SHOW MY PENIS TO TWITCH IF IT HITS - VOICE REVEAL - FACE REVE|[https://youtu.be/kid3zTsdvPU](https://youtu.be/kid3zTsdvPU)||
 |2023-3-17|YOU CRINGE YOU DRINK|[https://youtu.be/939-m2Mh56k](https://youtu.be/939-m2Mh56k)||
 |2023-3-15|YOUR FAVORITE STREAMER WATCHED ME NUT IN A TENT|[https://youtu.be/iQebI\_rDNrM](https://youtu.be/iQebI_rDNrM)||
