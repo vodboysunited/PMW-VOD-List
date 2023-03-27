@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-3-26|MEDIA SHARE NIGHT - NO VIEW MINIMUM - NUDITY NOT ALLOWED(?) - GOTH GIRLS ONLY|[https://youtu.be/0S5Bxvie9\_o](https://youtu.be/0S5Bxvie9_o)||
 |2023-3-24|WE FLEW A VIEWER OUT TO TORTURE - YES THIS IS A REAL VIEWER YES I AM UNCOMFORTABLE - PUNISHMENT JENGA|[https://youtu.be/U55EbA4JuFE](https://youtu.be/U55EbA4JuFE)||
 |2023-3-22|CHAT TALENT SHOW BUT IM STILL LOOKING FOR THE TALENT|[https://youtu.be/mXZguhhn6O0](https://youtu.be/mXZguhhn6O0)||
 |2023-3-19|BOYS NIGHT - PROSTITUTION - OPENING EVERY CS CASE - 400K IS ON THE LINE - WILL SHOW MY PENIS TO TWITCH IF IT HITS - VOICE REVEAL - FACE REVE|[https://youtu.be/kid3zTsdvPU](https://youtu.be/kid3zTsdvPU)||
