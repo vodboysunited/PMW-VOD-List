@@ -15,7 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-4-5|REVIEWING YOUR YOUTUBE LIVE - LATINAS|[https://youtu.be/eKo0Hqilf9o](https://youtu.be/eKo0Hqilf9o)||
+|2023-4-5|REVIEWING YOUR YOUTUBE LIVE - LATINAS|[YouTube](https://youtu.be/eKo0Hqilf9o) / [MEGA](https://mega.nz/file/EqxxgLYa#DFZM0UcH2bURr7CNLO_s9qVf2W4g1nQ4NIg1cmNwkYc)|Blocked by Netflix on YouTube. Download via MEGA link.|
 |2023-4-2|CASH AND GUNS AND TITTIES AND MILK AND MEN AND DONG AND 👽ILLEGAL ALIENS👽|[https://youtu.be/13oVMtrIayc](https://youtu.be/13oVMtrIayc)|Stream had a false start. This archive includes that segment.|
 |2023-3-31|TITTIES ARE UPON US - UP ON MY FACE - UP IN MY MOUTH - TONIGHT WE GAMBA - SUNDAY WE SHOOT|[https://youtu.be/KeBFJOF8Buw](https://youtu.be/KeBFJOF8Buw)|Stream was cut due to pp. This archive includes both segments.|
 |2023-3-29|IT WILL ALL BE DECIDED - FEET ARE HOT OCCASIONALLY - BARE NAKED BLACK BIG JUICY RESUBS - SCHITZO TITLES - SHOW ME THOSE PIGGIES !gg !tts|[https://youtu.be/kHqYyOTmw-E](https://youtu.be/kHqYyOTmw-E)||
