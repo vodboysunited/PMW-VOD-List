@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-4-21|SICK AS A DOG BUT STILL JUST AS RACIALLY MOTIVATED (TO SPREAD LOVE)|[https://youtu.be/r-Bsz9JVZDI](https://youtu.be/r-Bsz9JVZDI)||
 |2023-4-19|HUGE ANNOUNCEMENT - HIGH LAUGH YOU LOSE - PRIME SUBS GET TOES|[https://youtu.be/B4kz7xHBC-M](https://youtu.be/B4kz7xHBC-M)||
 |2023-4-12|PUBLIC MENACE - HANDICAPABLE - WETZEL PRETZEL - DISABLED THOUGHTS|[https://youtu.be/sHbFslhgS48](https://youtu.be/sHbFslhgS48)||
 |2023-4-9|POPE WUBBY? FILLING KIDS? ALL THE OLDIES, ALL THE TIME TONIGHT|[https://youtu.be/r0hICR8rTyE](https://youtu.be/r0hICR8rTyE)||
