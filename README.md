@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-5|MEXICAN COOK OFF - NOT OFFENSIVE - MEXICAN APPROVED|[https://youtu.be/y9v3bguBOeQ](https://youtu.be/y9v3bguBOeQ)||
 |2023-5-3|ROAD TRIP STREAM|[https://youtu.be/maK7sPJaOJk](https://youtu.be/maK7sPJaOJk)||
 |2023-5-1|POKER TOURNAMENT YES ITS AN AD SPONSOR DAY FREE MONEY FREE TOURNEY BIG TITS WELCOME|[https://youtu.be/Q-qB16UdnrQ](https://youtu.be/Q-qB16UdnrQ)||
 |2023-4-30|GOODIES - BRAZILIAN WOMEN - CHINA - TITANIC|[https://youtu.be/hcrj77FGfGM](https://youtu.be/hcrj77FGfGM)||
