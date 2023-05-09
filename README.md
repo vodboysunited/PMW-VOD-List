@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-8|LAST $0 BUY IN POKER TOURNAMENT - ANYONE CAN ENTER - PODCAST WITH THE BOYS|[https://youtu.be/ni-P5fjYj2Y](https://youtu.be/ni-P5fjYj2Y)||
 |2023-5-7|PUBLIC EXECUTION - SCAM ATTEMPT - ASMR UPDATE - GYM - WHEEL OF FORTUNE|[https://youtu.be/2u2toLQVKdw](https://youtu.be/2u2toLQVKdw)|Stream went down partway through. This archive includes both segments.|
 |2023-5-5|MEXICAN COOK OFF - NOT OFFENSIVE - MEXICAN APPROVED|[https://youtu.be/y9v3bguBOeQ](https://youtu.be/y9v3bguBOeQ)||
 |2023-5-3|ROAD TRIP STREAM|[https://youtu.be/maK7sPJaOJk](https://youtu.be/maK7sPJaOJk)||
