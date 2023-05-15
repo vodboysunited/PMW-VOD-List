@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-15|CASE OPENING - GOING TILL GOLD - GIVING AWAY GOOD PULLS TO CHAT|[https://youtu.be/r3e8IPnoyp4](https://youtu.be/r3e8IPnoyp4)|Stream went down once. This archive includes both segments.|
 |2023-5-12|ITS FINALLY TIME THE FLAVOR IS HERE BRAND RISK IS OUT GAMERSUPPS|[https://youtu.be/hmExNTFuR-4](https://youtu.be/hmExNTFuR-4)||
 |2023-5-10|CRINGE YOU DRINK - CANES - BMW - HALLE BERRY IN MONSTERS BALL|[https://youtu.be/4sj1cBeNooM](https://youtu.be/4sj1cBeNooM)|Stream went down twice. This archive includes all segments.|
 |2023-5-8|LAST $0 BUY IN POKER TOURNAMENT - ANYONE CAN ENTER - PODCAST WITH THE BOYS|[https://youtu.be/ni-P5fjYj2Y](https://youtu.be/ni-P5fjYj2Y)||
