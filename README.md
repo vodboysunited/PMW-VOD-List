@@ -148,5 +148,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 |2022-06-24|LIVE FROM SYDNEY! MULLET TIME? SURE|[https://youtu.be/opBHxBiw5a8](https://youtu.be/opBHxBiw5a8)||
 |2022-06-19|HIGH LAUGH YOU LOSE WITH MINX AND ALLUUX !mediashare (Pt.1)|[https://youtu.be/9tlgIB9yP-w](https://youtu.be/9tlgIB9yP-w)|Official VOD contains muted sections|
 |2022-06-19|HIGH LAUGH YOU LOSE WITH MINX AND ALLUUX !mediashare (Pt.2)|[https://youtu.be/Ohdu7YWBHLQ](https://youtu.be/Ohdu7YWBHLQ)||
+|2022-06-17|FEAR PONG AFTER DARK w\_ MINK, MIKO, AND ALEX|[https://youtu.be/sqMMSRXA5xo](https://youtu.be/sqMMSRXA5xo)||
+|2022-06-15|NO VOD MEANS NO RULES|[https://youtu.be/H\_u0-c1N\_fo](https://youtu.be/H_u0-c1N_fo)||
 
 &#x200B;
