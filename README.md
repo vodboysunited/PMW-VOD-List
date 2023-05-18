@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-17|HIGH LAUGH YOU LOSE - KING OF DA CASTLE - BRAZILIAN BUTTS|[https://youtu.be/\_EnlAM7QEHQ](https://youtu.be/_EnlAM7QEHQ)||
 |2023-5-15|CASE OPENING - GOING TILL GOLD - GIVING AWAY GOOD PULLS TO CHAT|[https://youtu.be/C5zo6OuVp7I](https://youtu.be/C5zo6OuVp7I)|Stream went down once. This archive includes both segments.|
 |2023-5-12|ITS FINALLY TIME THE FLAVOR IS HERE BRAND RISK IS OUT GAMERSUPPS|[https://youtu.be/hmExNTFuR-4](https://youtu.be/hmExNTFuR-4)||
 |2023-5-10|CRINGE YOU DRINK - CANES - BMW - HALLE BERRY IN MONSTERS BALL|[https://youtu.be/4sj1cBeNooM](https://youtu.be/4sj1cBeNooM)|Stream went down twice. This archive includes all segments.|
@@ -149,6 +150,6 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 |2022-06-19|HIGH LAUGH YOU LOSE WITH MINX AND ALLUUX !mediashare (Pt.1)|[https://youtu.be/9tlgIB9yP-w](https://youtu.be/9tlgIB9yP-w)|Official VOD contains muted sections|
 |2022-06-19|HIGH LAUGH YOU LOSE WITH MINX AND ALLUUX !mediashare (Pt.2)|[https://youtu.be/Ohdu7YWBHLQ](https://youtu.be/Ohdu7YWBHLQ)||
 |2022-06-17|FEAR PONG AFTER DARK w\_ MINK, MIKO, AND ALEX|[https://youtu.be/sqMMSRXA5xo](https://youtu.be/sqMMSRXA5xo)||
-|2022-06-15|NO VOD MEANS NO RULES|[https://youtu.be/H\_u0-c1N\_fo](https://youtu.be/H_u0-c1N_fo)||
+|2022-06-15|NO VOD MEANS NO RULES|[Youtube](https://youtu.be/H_u0-c1N_fo) / [MEGA](https://mega.nz/file/Bi4X1IhZ#XYsLY1UijmytfaUxTtjo2kyvfqTyFKQ8UBX_mUyS1ic)|Blocked worldwide on YouTube. Use MEGA link instead.|
 
 &#x200B;
