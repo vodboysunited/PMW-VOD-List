@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-26|THE 'SIMS' IS BACK BABY - TOTALLY A REVIEW|[https://youtu.be/1L9ROra1Bu4](https://youtu.be/1L9ROra1Bu4)||
 |2023-5-24|GUESSING CHATTERS CAR, ROOM, FRIDGE, FEET, TOES, LIPS|[https://youtu.be/MP0rO6dDdko](https://youtu.be/MP0rO6dDdko)||
 |2023-5-21|BOYS NIGHT - BIG CONTENT - UNDERWEAR ONLY - IDUBBBZ - REACT|[https://youtu.be/iNDE6tV-Sng](https://youtu.be/iNDE6tV-Sng)||
 |2023-5-19|CHAT TALENT SHOW - 1K CASH PRIZE - BULLYING ENABLED|[https://youtu.be/n71WWd6ESIQ](https://youtu.be/n71WWd6ESIQ)|Stream went down twice. This archive includes all 3 segments.|
