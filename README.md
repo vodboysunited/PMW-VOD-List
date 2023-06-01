@@ -3,8 +3,6 @@ Alternative hosting for the list of VODs archived by vodboysunited.
 
 UPDATE (2022-11-12): I added all of the archived VODS on YouTube to an unlisted playlist, [HERE](https://www.youtube.com/playlist?list=PLiguRbpEHVakD-tCQWMn4J9rqIjOOhhD0).
 
-&#x200B;
-
 All VODs that I have archived are listed below. This list is updated as more VODs are made available.
 
 For any VODs that are unavailable/inaccessible/blocked on YouTube, you can use the Mega link provided instead. VODs provided through Mega are encoded to H265 to preserve the best possible video quality while reducing file size. Most modern devices should be able to play H265 videos given that you have a fairly modern device / CPU. VLC is probably your best bet in playing H265 videos on the desktop so start there first if you're not familiar with H265 and high efficiency video codecs.
@@ -15,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-5-31|WHO IS THE WEAKEST LINK? THE NEW TWITCH CEO IS HIGHLY REGARDED|[https://youtu.be/AUm5gbKs2NI](https://youtu.be/AUm5gbKs2NI)|READ: Streamlink was broken by recent changes from Twitch. Stream recording does not work at the moment. This VOD was downloaded after stream ended. Devs are working on fixing Streamlink. |
+|2023-5-31|WHO IS THE WEAKEST LINK? THE NEW TWITCH CEO IS HIGHLY REGARDED|[https://youtu.be/AUm5gbKs2NI](https://youtu.be/AUm5gbKs2NI)|READ: Streamlink was broken by recent changes from Twitch. My recording script broke so this archive was DL'd from the official Twitch VOD. I have a workaround in place now.|
 |2023-5-28|MEDIA SHARE - NO VIEW MINIMUM - SUBMIT NOW|[YouTube](https://youtu.be/Lt2Cmfg3XVE) / [MEGA](https://mega.nz/file/Eng1SaST#ySAvjDBVlxPhSkNZenkvgc4uhhaEWbj715J23Fsv6JI)|Blocked worldwide. Use MEGA link instead.|
 |2023-5-26|THE 'SIMS' IS BACK BABY - TOTALLY A REVIEW|[YouTube](https://youtu.be/1L9ROra1Bu4) / [MEGA](https://mega.nz/file/4z4gALYS#QDSxSb-NNO9hRl_iidRK68ZXRE-MiEU-uVGt4RBJq7g)|Blocked worldwide on YouTube (b/c 90Day). Use MEGA link instead|
 |2023-5-24|GUESSING CHATTERS CAR, ROOM, FRIDGE, FEET, TOES, LIPS|[https://youtu.be/MP0rO6dDdko](https://youtu.be/MP0rO6dDdko)||
