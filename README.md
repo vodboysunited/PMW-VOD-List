@@ -15,6 +15,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-5-31|WHO IS THE WEAKEST LINK? THE NEW TWITCH CEO IS HIGHLY REGARDED|[https://youtu.be/AUm5gbKs2NI](https://youtu.be/AUm5gbKs2NI)|READ: Streamlink was broken by recent changes from Twitch. Stream recording does not work at the moment. This VOD was downloaded after stream ended. Devs are working on fixing Streamlink. |
 |2023-5-28|MEDIA SHARE - NO VIEW MINIMUM - SUBMIT NOW|[YouTube](https://youtu.be/Lt2Cmfg3XVE) / [MEGA](https://mega.nz/file/Eng1SaST#ySAvjDBVlxPhSkNZenkvgc4uhhaEWbj715J23Fsv6JI)|Blocked worldwide. Use MEGA link instead.|
 |2023-5-26|THE 'SIMS' IS BACK BABY - TOTALLY A REVIEW|[YouTube](https://youtu.be/1L9ROra1Bu4) / [MEGA](https://mega.nz/file/4z4gALYS#QDSxSb-NNO9hRl_iidRK68ZXRE-MiEU-uVGt4RBJq7g)|Blocked worldwide on YouTube (b/c 90Day). Use MEGA link instead|
 |2023-5-24|GUESSING CHATTERS CAR, ROOM, FRIDGE, FEET, TOES, LIPS|[https://youtu.be/MP0rO6dDdko](https://youtu.be/MP0rO6dDdko)||
