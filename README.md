@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-6-2|90 DAYS IS A RANDOM NUMBER OF DAYS AND WE ARE SIMPLY PLAYING THE SIMS ON STREAM TONIGHT I PROMISE|[https://youtu.be/YF8pqGBpKT0](https://youtu.be/YF8pqGBpKT0)|Stream died partway through. This archive has both segments.|
+|2023-6-2|90 DAYS IS A RANDOM NUMBER OF DAYS AND WE ARE SIMPLY PLAYING THE SIMS ON STREAM TONIGHT I PROMISE|[YouTube](https://youtu.be/YF8pqGBpKT0) / [MEGA](https://mega.nz/file/ByYjlBoJ#7sECMxaIos8p-67_3xh5REv2pcz1FfMbY0UnD0_Nx_A)|Stream died partway through. This archive has both segments. /// Blocked on YouTube - Use MEGA link instead.|
 |2023-5-31|WHO IS THE WEAKEST LINK? THE NEW TWITCH CEO IS HIGHLY REGARDED|[https://youtu.be/AUm5gbKs2NI](https://youtu.be/AUm5gbKs2NI)|READ: Streamlink was broken by recent changes from Twitch. My recording script broke so this archive was DL'd from the official Twitch VOD. I have a workaround in place now.|
 |2023-5-28|MEDIA SHARE - NO VIEW MINIMUM - SUBMIT NOW|[YouTube](https://youtu.be/Lt2Cmfg3XVE) / [MEGA](https://mega.nz/file/Eng1SaST#ySAvjDBVlxPhSkNZenkvgc4uhhaEWbj715J23Fsv6JI)|Blocked worldwide. Use MEGA link instead.|
 |2023-5-26|THE 'SIMS' IS BACK BABY - TOTALLY A REVIEW|[YouTube](https://youtu.be/1L9ROra1Bu4) / [MEGA](https://mega.nz/file/4z4gALYS#QDSxSb-NNO9hRl_iidRK68ZXRE-MiEU-uVGt4RBJq7g)|Blocked worldwide on YouTube (b/c 90Day). Use MEGA link instead|
