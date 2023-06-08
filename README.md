@@ -5,7 +5,7 @@ UPDATE (2022-11-12): I added all of the archived VODS on YouTube to an unlisted 
 
 All VODs that I have archived are listed below. This list is updated as more VODs are made available.
 
-For any VODs that are unavailable/inaccessible/blocked on YouTube, you can use the Mega link provided instead. VODs provided through Mega are encoded to H265 to preserve the best possible video quality while reducing file size. Most modern devices should be able to play H265 videos given that you have a fairly modern device / CPU. VLC is probably your best bet in playing H265 videos on the desktop so start there first if you're not familiar with H265 and high efficiency video codecs.
+For any VODs that are unavailable/inaccessible/blocked on YouTube, you can use the Mega link provided instead.
 
 Check Wubby's Twitch page first and if the VOD is available there, go watch it there instead. It's a much better viewing experience. This archive is just for if a VOD is missing, has significant muted sections, or if the stream was cut due to internet or other reasons. When stream is cut, Wubby doesn't always publish the shorter segments on Twitch for some reason. The archived VODs linked to here are captured live, not downloaded after stream ends and, unless otherwise noted, will always have all segments of stream, even if they were never officially published by Wubby.
 
@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-6-7|CHAT VS CHAT MARIO PARTY W/ u/ALLUUX|[https://youtu.be/g0qllU2r1Ko](https://youtu.be/g0qllU2r1Ko)|Stream went down x2, this archive includes all segments.|
 |2023-6-4|MOD PURGE - POWER POINTS - TITS|[https://youtu.be/rz-5fMh-CCk](https://youtu.be/rz-5fMh-CCk)||
 |2023-6-2|90 DAYS IS A RANDOM NUMBER OF DAYS AND WE ARE SIMPLY PLAYING THE SIMS ON STREAM TONIGHT I PROMISE|[YouTube](https://youtu.be/YF8pqGBpKT0) / [MEGA](https://mega.nz/file/ByYjlBoJ#7sECMxaIos8p-67_3xh5REv2pcz1FfMbY0UnD0_Nx_A)|Stream died partway through. This archive has both segments. /// Blocked on YouTube - Use MEGA link instead.|
 |2023-5-31|WHO IS THE WEAKEST LINK? THE NEW TWITCH CEO IS HIGHLY REGARDED|[https://youtu.be/AUm5gbKs2NI](https://youtu.be/AUm5gbKs2NI)|READ: Streamlink was broken by recent changes from Twitch. My recording script broke so this archive was DL'd from the official Twitch VOD. I have a workaround in place now.|
