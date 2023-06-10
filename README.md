@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[https://youtu.be/ucfpbelHDoI](https://youtu.be/ucfpbelHDoI)||
+|2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[YouTube](https://youtu.be/ucfpbelHDoI) / [MEGA](https://mega.nz/file/Yipi3SjA#fIqUWRiupq-vAGKxxf-5oxNwmxgMj1ThIrQs9JxEiCU)|Blocked worldwide on YouTube (90DF). Use MEGA link instead.|
 
 
 |Stream Date|Title|URL|Notes|
