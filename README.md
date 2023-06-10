@@ -13,6 +13,11 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[https://youtu.be/ucfpbelHDoI](https://youtu.be/ucfpbelHDoI)||
+
+
+|Stream Date|Title|URL|Notes|
+|:-|:-|:-|:-|
 |2023-6-7|CHAT VS CHAT MARIO PARTY W/ u/ALLUUX|[https://youtu.be/g0qllU2r1Ko](https://youtu.be/g0qllU2r1Ko)|Stream went down x2, this archive includes all segments.|
 |2023-6-4|MOD PURGE - POWER POINTS - TITS|[https://youtu.be/rz-5fMh-CCk](https://youtu.be/rz-5fMh-CCk)||
 |2023-6-2|90 DAYS IS A RANDOM NUMBER OF DAYS AND WE ARE SIMPLY PLAYING THE SIMS ON STREAM TONIGHT I PROMISE|[YouTube](https://youtu.be/YF8pqGBpKT0) / [MEGA](https://mega.nz/file/ByYjlBoJ#7sECMxaIos8p-67_3xh5REv2pcz1FfMbY0UnD0_Nx_A)|Stream died partway through. This archive has both segments. /// Blocked on YouTube - Use MEGA link instead.|
