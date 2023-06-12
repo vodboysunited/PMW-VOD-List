@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-6-11|YOU CRINGE, YOU DRINK, YOU MILES, YOU MORALES, BLACK SPIDERMAN, WEB SLINGING RIGHT INTO GWEN'S COOCHI I POOED MY PANTS 36 MIN INTO THE MOVIE|[https://youtu.be/ZVJFLpxGmyk](https://youtu.be/ZVJFLpxGmyk)||
 |2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[YouTube](https://youtu.be/ucfpbelHDoI) / [MEGA](https://mega.nz/file/Yipi3SjA#fIqUWRiupq-vAGKxxf-5oxNwmxgMj1ThIrQs9JxEiCU)|Blocked worldwide on YouTube (90DF). Use MEGA link instead.|
 
 
