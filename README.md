@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-6-16|TWITCH AUTOPSY - GET A HAIRCUT YOU GREASY WEASEL - THAT HAIRCUT COMMENT IS NOT DIRECTED AT ANYONE DIRECTLY - MOUSEPAD RELEASE W/ BOOB|[https://youtu.be/a11fQvpKT6g](https://youtu.be/a11fQvpKT6g)|Will probably be blocked because of 90DF. |
+|2023-6-16|TWITCH AUTOPSY - GET A HAIRCUT YOU GREASY WEASEL - THAT HAIRCUT COMMENT IS NOT DIRECTED AT ANYONE DIRECTLY - MOUSEPAD RELEASE W/ BOOB|[YouTube](https://youtu.be/a11fQvpKT6g) / [MEGA](https://mega.nz/file/1mpB0D5L#t-fROKSxYNJPRsbpEpFOrZMxIrf7I4S7NIJRMvQ4jlk)|Blocked in the US (90DF). Use MEGA link instead.|
 |2023-6-14|JUMPING AND FALLING AND CRYING AND KISSING MEN KISSING MOSTLY MEN, BOYS, ADULT BOYS, SUBREDDIT BACK UP DO NOT POST BOOB OR PEEN|[https://youtu.be/2bjaYTD1REs](https://youtu.be/2bjaYTD1REs)||
 |2023-6-11|YOU CRINGE, YOU DRINK, YOU MILES, YOU MORALES, BLACK SPIDERMAN, WEB SLINGING RIGHT INTO GWEN'S COOCHI I POOED MY PANTS 36 MIN INTO THE MOVIE|[https://youtu.be/ZVJFLpxGmyk](https://youtu.be/ZVJFLpxGmyk)||
 |2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[YouTube](https://youtu.be/ucfpbelHDoI) / [MEGA](https://mega.nz/file/Yipi3SjA#fIqUWRiupq-vAGKxxf-5oxNwmxgMj1ThIrQs9JxEiCU)|Blocked worldwide on YouTube (90DF). Use MEGA link instead.|
