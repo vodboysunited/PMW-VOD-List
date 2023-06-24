@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-6-23|YOU LAUGH, YOU LOSE, SMOKE DRUGS, DONT LAUGH, DONT LAUGH, JULIA FOXX UNCUT ASS, IMAGINE AN ASS WITHOUT TWO CHEEKS, ONE CHEEK POOTER|[https://youtu.be/byahG2M4caQ](https://youtu.be/byahG2M4caQ)||
 |2023-6-21|WHICH POPTART FLAVOR IS KING - IF I DONT HAVE THIS LEGO SHARK ON MY DESK BY NEXT WEEK I AM GOING GALACTIC ON LEGO CORP|[https://youtu.be/cvUE-1uskaQ](https://youtu.be/cvUE-1uskaQ)||
 |2023-6-18|THIS SPEEDRUN ENDS WHEN I SHIT MYSELF|[https://youtu.be/F-CTtFJyhew](https://youtu.be/F-CTtFJyhew)||
 |2023-6-16|TWITCH AUTOPSY - GET A HAIRCUT YOU GREASY WEASEL - THAT HAIRCUT COMMENT IS NOT DIRECTED AT ANYONE DIRECTLY - MOUSEPAD RELEASE W/ BOOB|[YouTube](https://youtu.be/a11fQvpKT6g) / [MEGA](https://mega.nz/file/o7BzGL7R#xZKrELX7jiwlsZOAmtqYHiWfmNyRVVlFiaB-gd0Cb9E)|Blocked in the US (90DF). Use MEGA link instead.|
