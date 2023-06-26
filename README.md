@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-6-25|10 MILLION DOLLAR HUNT - I WILL PULL THE RING AND SHOW MY PEEN - CAN'T HELP MYSELF, ITS LORD OF THE RINGS TIME|[https://youtu.be/iDfNFX93-oY](https://youtu.be/iDfNFX93-oY)||
 |2023-6-23|YOU LAUGH, YOU LOSE, SMOKE DRUGS, DONT LAUGH, DONT LAUGH, JULIA FOXX UNCUT ASS, IMAGINE AN ASS WITHOUT TWO CHEEKS, ONE CHEEK POOTER|[https://youtu.be/byahG2M4caQ](https://youtu.be/byahG2M4caQ)||
 |2023-6-21|WHICH POPTART FLAVOR IS KING - IF I DONT HAVE THIS LEGO SHARK ON MY DESK BY NEXT WEEK I AM GOING GALACTIC ON LEGO CORP|[https://youtu.be/cvUE-1uskaQ](https://youtu.be/cvUE-1uskaQ)||
 |2023-6-18|THIS SPEEDRUN ENDS WHEN I SHIT MYSELF|[https://youtu.be/F-CTtFJyhew](https://youtu.be/F-CTtFJyhew)||
