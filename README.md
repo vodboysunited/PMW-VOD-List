@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-6-30|IM JUST SITTING HERE STROKING MY SHIT I GOT LOTION, KICK OFF YOUR SOCKS, TAKE YOUR TOES OUT, MEDIA SHARE THIS SUNDAY YAPPING TODAY|[https://youtu.be/4uE0ChPVr1Y](https://youtu.be/4uE0ChPVr1Y)|Stream went down \~4 times. This archive includes all segments. Will probably get blocked on YT due to 90Day. MEGA link coming soon.|
+|2023-6-30|IM JUST SITTING HERE STROKING MY SHIT I GOT LOTION, KICK OFF YOUR SOCKS, TAKE YOUR TOES OUT, MEDIA SHARE THIS SUNDAY YAPPING TODAY|[YouTube](https://youtu.be/4uE0ChPVr1Y) / [MEGA](https://mega.nz/file/0uJ0FCrA#AvB8O-kxrXCIWhx-3d74wUagwfA5QSJJ0H0V2FDRIPk)|Stream went down \~4 times. This archive includes all segments. Blocked in USA due to 90Day. Use MEGA link instead.|
 |2023-6-28|I BOUGHT EVERY YOUTUBER MERCH AND NOW I AM GOING TO SHIT ON IT - LITERALLY - I WILL BE MAKING A MERCH PILE AND TAKING A SHIT ON IT|[https://youtu.be/H-tgH1mmggw](https://youtu.be/H-tgH1mmggw)|Stream went down partway through. This archive includes both segments.|
 |2023-6-25|10 MILLION DOLLAR HUNT - I WILL PULL THE RING AND SHOW MY PEEN - CAN'T HELP MYSELF, ITS LORD OF THE RINGS TIME|[https://youtu.be/iDfNFX93-oY](https://youtu.be/iDfNFX93-oY)||
 |2023-6-23|YOU LAUGH, YOU LOSE, SMOKE DRUGS, DONT LAUGH, DONT LAUGH, JULIA FOXX UNCUT ASS, IMAGINE AN ASS WITHOUT TWO CHEEKS, ONE CHEEK POOTER|[https://youtu.be/byahG2M4caQ](https://youtu.be/byahG2M4caQ)||
