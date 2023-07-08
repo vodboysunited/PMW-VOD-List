@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-7-7|100 SUBS TO FIT THE ENTIRE EIFFEL TOWER IN MY BUNG HOLE YES ITS ALL GOING UP THERE ROOM TO SPARE TWITCHCON PARIS|[https://youtu.be/SSbT0Sgtv4o](https://youtu.be/SSbT0Sgtv4o)||
 |2023-7-2|MEDIA SHARE - ITS FINALLY TIME - ARABIC VIDEOS WELCOME|[YouTube](https://youtu.be/36lAfI5kfH4) / [MEGA](https://mega.nz/file/o2RlSbxD#-owk8jUVG-JhiYr602CA1ECqxFbWFgc1ysjFo4JwYxE)|UK VOD boys, use MEGA link instead.|
 |2023-6-30|IM JUST SITTING HERE STROKING MY SHIT I GOT LOTION, KICK OFF YOUR SOCKS, TAKE YOUR TOES OUT, MEDIA SHARE THIS SUNDAY YAPPING TODAY|[YouTube](https://youtu.be/4uE0ChPVr1Y) / [MEGA](https://mega.nz/file/02BEXCLY#7JRP-r7S5ZL3rAly1DnAiOZV_Ujw0DVBWN0YKguSY08)|Stream went down \~4 times. This archive includes all segments. Blocked in USA due to 90Day. Use MEGA link instead.|
 |2023-6-28|I BOUGHT EVERY YOUTUBER MERCH AND NOW I AM GOING TO SHIT ON IT - LITERALLY - I WILL BE MAKING A MERCH PILE AND TAKING A SHIT ON IT|[https://youtu.be/H-tgH1mmggw](https://youtu.be/H-tgH1mmggw)|Stream went down partway through. This archive includes both segments.|
