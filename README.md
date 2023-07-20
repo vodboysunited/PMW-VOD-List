@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-7-19|SUBATHONS - CONFESSIONS - CONTRACTS - 90 DAYS - DRIVE THRU CHALLENGE TOMORROW 2PM PST|[https://youtu.be/hmy6eWHESyw](https://youtu.be/hmy6eWHESyw)||
 |2023-7-16|FINALLY BACK FROM VACATION - WEAKEST LINK TONIGHT - RETURN OF THE KING|[https://youtu.be/3g44fEb8Cxc](https://youtu.be/3g44fEb8Cxc)|Stream cut a few times in the middle. This archive includes all segments.|
 |2023-7-9|YOU LAUGH YOU LOSE|[https://youtu.be/IwGu6KYy-\_0](https://youtu.be/IwGu6KYy-_0)||
 |2023-7-8|Currently @ TwitchCon Paris, Stay Tuned for Updates|[https://youtu.be/YdFXxbhDGEY](https://youtu.be/YdFXxbhDGEY)|See note in YT vid description for explanation.|
