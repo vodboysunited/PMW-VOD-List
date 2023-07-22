@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-7-21|SAN DIEGO COMIC CON AT 4PM PST|[https://youtu.be/NM1yt2zmwKc](https://youtu.be/NM1yt2zmwKc)||
 |2023-7-20|DOUGDOUG DRIVE THRU CHALLENGE - AI TTS 1K BITS|[https://youtu.be/o30lwSGecZk](https://youtu.be/o30lwSGecZk)||
 |2023-7-19|SUBATHONS - CONFESSIONS - CONTRACTS - 90 DAYS - DRIVE THRU CHALLENGE TOMORROW 2PM PST|[https://youtu.be/hmy6eWHESyw](https://youtu.be/hmy6eWHESyw)||
 |2023-7-16|FINALLY BACK FROM VACATION - WEAKEST LINK TONIGHT - RETURN OF THE KING|[https://youtu.be/3g44fEb8Cxc](https://youtu.be/3g44fEb8Cxc)|Stream cut a few times in the middle. This archive includes all segments.|
