@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-7-23|MARGOT ROBBIE IN THAT ONE SCENE FROM THE WOLF OF WALL STREET, ON REPEAT FOR 4 HOURS. THATS IT. THATS THE WHOLE STREAM|[https://youtu.be/FcYZkNSFH6w](https://youtu.be/FcYZkNSFH6w)|Stream went down once, then Wubby had cut stream for TOS purposes. This archive includes all 3 segments of stream.|
+|2023-7-23|MARGOT ROBBIE IN THAT ONE SCENE FROM THE WOLF OF WALL STREET, ON REPEAT FOR 4 HOURS. THATS IT. THATS THE WHOLE STREAM|[YouTube](https://youtu.be/FcYZkNSFH6w) / [MEGA](https://mega.nz/file/Vih2QAqK#Z4rq_UEAwW1tcZkJChEfMWkxxDEhmAIH3EA-IYQU7e8)|Two cuts in stream (Cox + TOS), this archive includes all segments. Likely to be blocked on YT (90DF), use MEGA link instead.|
 |2023-7-21|SAN DIEGO COMIC CON AT 4PM PST|[https://youtu.be/NM1yt2zmwKc](https://youtu.be/NM1yt2zmwKc)||
 |2023-7-20|DOUGDOUG DRIVE THRU CHALLENGE - AI TTS 1K BITS|[https://youtu.be/o30lwSGecZk](https://youtu.be/o30lwSGecZk)||
 |2023-7-19|SUBATHONS - CONFESSIONS - CONTRACTS - 90 DAYS - DRIVE THRU CHALLENGE TOMORROW 2PM PST|[https://youtu.be/hmy6eWHESyw](https://youtu.be/hmy6eWHESyw)||
