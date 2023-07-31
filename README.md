@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-7-30|I PROMISE I WILL NOT GET STUNLOCKED AND WE WILL GET TO THE CONTENT TONIGHT I SWEAR OR MY SONS NAME ISNT ENWARD HEETLER|[https://youtu.be/24e7Rb6MlFc](https://youtu.be/24e7Rb6MlFc)||
 |2023-7-28|MERCH IS LIVE - CATS AND ADOPTIONS AND MAYBE PIKMIN AND MAYBE OTHER SHIT|[https://youtu.be/mC0POQqnTZQ](https://youtu.be/mC0POQqnTZQ)||
 |2023-7-26|CRINGE YOU DRINK - SO MANY BIG ANNOUNCEMENTS - MOD CRAB GAME - HOLY MOTHER OF GOD MARGOT ROBBIE'S FEET DIRTY AS A DOG GRIP GRIP MY D|[https://youtu.be/0OEgI9LujnI](https://youtu.be/0OEgI9LujnI)|Stream went down once. This archive includes all segments of stream.|
 |2023-7-23|MARGOT ROBBIE IN THAT ONE SCENE FROM THE WOLF OF WALL STREET, ON REPEAT FOR 4 HOURS. THATS IT. THATS THE WHOLE STREAM|[YouTube](https://youtu.be/FcYZkNSFH6w) / [MEGA](https://mega.nz/file/Vih2QAqK#Z4rq_UEAwW1tcZkJChEfMWkxxDEhmAIH3EA-IYQU7e8)|Two cuts in stream (Cox + TOS), this archive includes all segments. Likely to be blocked on YT (90DF), use MEGA link instead.|
