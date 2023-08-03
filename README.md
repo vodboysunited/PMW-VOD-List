@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-8-2|WUBBY FILM CONTEST TONIGHT IS THE NIGHT THE STARS ARE OUT THE MAGIC IS IN THE AIR MOVIE NIGHT WITH MEN AND WOMEN AND MENWOME|[https://youtu.be/-b5SS0ZQ1Gs](https://youtu.be/-b5SS0ZQ1Gs)||
 |2023-7-30|I PROMISE I WILL NOT GET STUNLOCKED AND WE WILL GET TO THE CONTENT TONIGHT I SWEAR OR MY SONS NAME ISNT ENWARD HEETLER|[YouTube](https://youtu.be/24e7Rb6MlFc) / [MEGA](https://mega.nz/file/AmxzWQ4Q#b4MyhrLU8JB-9W5WbR6q537yOM7OLfR3vIv15xfXxFA)|Blocked in the US on YouTube (90DF), Use MEGA link instead. / Stream went down, this archive includes both segments.|
 |2023-7-28|MERCH IS LIVE - CATS AND ADOPTIONS AND MAYBE PIKMIN AND MAYBE OTHER SHIT|[https://youtu.be/mC0POQqnTZQ](https://youtu.be/mC0POQqnTZQ)||
 |2023-7-26|CRINGE YOU DRINK - SO MANY BIG ANNOUNCEMENTS - MOD CRAB GAME - HOLY MOTHER OF GOD MARGOT ROBBIE'S FEET DIRTY AS A DOG GRIP GRIP MY D|[https://youtu.be/0OEgI9LujnI](https://youtu.be/0OEgI9LujnI)|Stream went down once. This archive includes all segments of stream.|
