@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-8-4|LOCKING GRANDMA IN HER APARTMENT, WELLNESS CHECK SPEEDRUN ANY %, 13 HIDDEN CAMS, TTS IS ENABLED|[https://youtu.be/TrHX\_Q3SDLA](https://youtu.be/TrHX_Q3SDLA)|Will probably be blocked on YT due to 90DF. MEGA link coming shortly.|
 |2023-8-2|WUBBY FILM CONTEST TONIGHT IS THE NIGHT THE STARS ARE OUT THE MAGIC IS IN THE AIR MOVIE NIGHT WITH MEN AND WOMEN AND MENWOME|[https://youtu.be/-b5SS0ZQ1Gs](https://youtu.be/-b5SS0ZQ1Gs)||
 |2023-7-30|I PROMISE I WILL NOT GET STUNLOCKED AND WE WILL GET TO THE CONTENT TONIGHT I SWEAR OR MY SONS NAME ISNT ENWARD HEETLER|[YouTube](https://youtu.be/24e7Rb6MlFc) / [MEGA](https://mega.nz/file/AmxzWQ4Q#b4MyhrLU8JB-9W5WbR6q537yOM7OLfR3vIv15xfXxFA)|Blocked in the US on YouTube (90DF), Use MEGA link instead. / Stream went down, this archive includes both segments.|
 |2023-7-28|MERCH IS LIVE - CATS AND ADOPTIONS AND MAYBE PIKMIN AND MAYBE OTHER SHIT|[https://youtu.be/mC0POQqnTZQ](https://youtu.be/mC0POQqnTZQ)||
