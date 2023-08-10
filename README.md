@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-8-9|WILL I GET BANNED RIGHT BEFORE MY SUBATHON? LETS FIND OUT (I REALLY HOPE NOT)|[https://youtu.be/1b42KmPWiEc](https://youtu.be/1b42KmPWiEc)||
 |2023-8-6|MEDIA SHAREEEEEEEEEEEEE|[YouTube](https://youtu.be/pCmmWcmW_G0) / [MEGA](https://mega.nz/file/MyhXnYjS#5RKBpWq-5HkSEaFeb7F_J6PXBcHfLms69qpAN1BnH6M)|Blocked on YouTube. Use MEGA link instead.|
 |2023-8-4|LOCKING GRANDMA IN HER APARTMENT, WELLNESS CHECK SPEEDRUN ANY %, 13 HIDDEN CAMS, TTS IS ENABLED|[YouTube](https://youtu.be/TrHX_Q3SDLA) / [MEGA](https://mega.nz/file/QiJ2RL6B#JGBtjkZ9K8Bjh7phJXgpnUC3Qi0hb01HfmvrkDT2MYo)|Will probably be blocked on YT due to 90DF. If so, use MEGA link instead.|
 |2023-8-2|WUBBY FILM CONTEST TONIGHT IS THE NIGHT THE STARS ARE OUT THE MAGIC IS IN THE AIR MOVIE NIGHT WITH MEN AND WOMEN AND MENWOME|[https://youtu.be/-b5SS0ZQ1Gs](https://youtu.be/-b5SS0ZQ1Gs)||
