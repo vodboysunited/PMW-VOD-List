@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-9-1|PAPER PLATES|[https://youtu.be/rnFex-lY-VQ](https://youtu.be/rnFex-lY-VQ)|Will likely be blocked on YT by Netflix. Wait for MEGA link.|
+|2023-9-1|PAPER PLATES|[YouTube](https://youtu.be/rnFex-lY-VQ) / [MEGA](https://mega.nz/file/t2JQEKZB#YemzInAg9qBsgxoVl2ls0JG0pBr9FZasV46J6NmqFvw)|Blocked on YT by Netflix. Use MEGA link instead.|
 |2023-8-30|MATCHING  THE VIEWER BY FEET ALONE - I BUILT A CAREER OVER 6 YEARS FOR THIS  MOMENT RIGHT HERE - COLLECTED SO MANY FEET PICS - GET BAITED IDIO|[https://youtu.be/CRjcKo5E8UU](https://youtu.be/CRjcKo5E8UU)|Stream went down once. This archive includes both segments.|
 |2023-8-27|FILM CONTEST HONORABLE MENTIONS - SUCKING DOWN THE FATTIEST FART FROM THE THICKEST WOMAN WHO WILL CONSENT|[https://youtu.be/Dbg4Q-iLM5I](https://youtu.be/Dbg4Q-iLM5I)|Stream went down several times. This archive includes all segments.|
 |2023-8-25|BACK BACK BACK TONIGHT WITH DOWN SYNDROME LOCKED AND LOADED|[YouTube](https://youtu.be/LuOBJU8Wgq4) / [MEGA](https://mega.nz/file/Z2I2gbAD#7r0baUtspV17EbL52qZamZggKdzQPBs1lDlNvbWgkKA)|Stream went hard down once. This archive includes both segments. Will likely be blocked on YT by Netflix. Use MEGA link instead.|
