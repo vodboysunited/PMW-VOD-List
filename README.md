@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-9-6|I WILL NOT HARASS OR ATTACK A SINGLE CHINESE PERSON THIS STREAM|[https://youtu.be/qKj5yyBLwfI](https://youtu.be/qKj5yyBLwfI)||
 |2023-9-4|OPENING 15K BOX OF MAGIC CARDS FOR LIKE A $20 RETURN PRIME SUBS SOFTEN THE BLOW|[https://youtu.be/-FYjOj9RxS8](https://youtu.be/-FYjOj9RxS8)||
 |2023-9-3|HALAL COOK OFF WITH MY DAD|[https://youtu.be/FOBcJVGfphk](https://youtu.be/FOBcJVGfphk)||
 |2023-9-1|PAPER PLATES|[YouTube](https://youtu.be/rnFex-lY-VQ) / [MEGA](https://mega.nz/file/t2JQEKZB#YemzInAg9qBsgxoVl2ls0JG0pBr9FZasV46J6NmqFvw)|Blocked on YT by Netflix. Use MEGA link instead.|
