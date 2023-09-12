@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-9-11|MTG MONDAY - OPENING 14K UNLIMITED STARTER DECK - BLACK LOTUS CHANCE- THIS IS A MISTAKE - PRIMES WELCOME|[https://youtu.be/NhsVf8Tk9HM](https://youtu.be/NhsVf8Tk9HM)|Stream went down once. This archive includes both segments.|
 |2023-9-10|MEDIA SHARE - NO VIEW MINIMUM - OPEN NOW - DONT GET DRUNK CHALLENGE|[YouTube](https://youtu.be/krvQpHRQ92g) / [MEGA](https://mega.nz/file/c7h02RYQ#88boT-mQj6Z1encShas63HN8mS5gK_EaRokLMlHC_-Y)|VOD got blocked in most countries on YouTube. Use MEGA link instead.|
 |2023-9-8|GUARANTEE THIS CHAT WILL REMAIN CIVIL AS WE JOURNEY TO FIND THE GREATEST 'THING'. NO ONE WILL BE OFFENDED. NO ONE IS MAD. WHY ARE YOU MAD|[YouTube](https://youtu.be/kjQRU__VvJM) / [MEGA](https://mega.nz/file/Z2JSzJSR#yh3ABA_rVb0U1YlKEhTEYFMbSf-S3jXBfZArNpkjMXQ)|Netflix blocked the VOD on YouTube. Use MEGA link instead.|
 |2023-9-6|I WILL NOT HARASS OR ATTACK A SINGLE CHINESE PERSON THIS STREAM|[https://youtu.be/qKj5yyBLwfI](https://youtu.be/qKj5yyBLwfI)||
