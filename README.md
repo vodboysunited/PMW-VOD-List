@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-9-15|WELLLLLLLLL LOOKS LIKE THIS ONE IS FOR THE BOYS|[https://youtu.be/NqOKNa8-jPo](https://youtu.be/NqOKNa8-jPo)|Will get blocked on YouTube by Netflix. Wait for MEGA link.|
 |2023-9-13|HIGH LAUGH YOU LOSE - UNLIMITED STARTER DECK STORY - GANG GANG|[https://youtu.be/UOVUlLqEiXQ](https://youtu.be/UOVUlLqEiXQ)|Stream went down twice. This archive includes all segments.|
 |2023-9-11|MTG MONDAY - OPENING 14K UNLIMITED STARTER DECK - BLACK LOTUS CHANCE- THIS IS A MISTAKE - PRIMES WELCOME|[https://youtu.be/NhsVf8Tk9HM](https://youtu.be/NhsVf8Tk9HM)|Stream went down once. This archive includes both segments.|
 |2023-9-10|MEDIA SHARE - NO VIEW MINIMUM - OPEN NOW - DONT GET DRUNK CHALLENGE|[YouTube](https://youtu.be/krvQpHRQ92g) / [MEGA](https://mega.nz/file/c7h02RYQ#88boT-mQj6Z1encShas63HN8mS5gK_EaRokLMlHC_-Y)|VOD got blocked in most countries on YouTube. Use MEGA link instead.|
