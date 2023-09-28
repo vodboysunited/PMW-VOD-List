@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/IbKodTDG7Rs](https://youtu.be/IbKodTDG7Rs)|Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
 |2023-9-24|YOU KNOW WHAT IT IS, WE ARE GONNA DOING, NOT JUST SAYING, DOING TONIGHT, YOLU KNOW IT IS, YOU KNOW HOW HOW IS IT NO BODY EVER ASK HOW IT I|[YouTube](https://youtu.be/aUQKlaK4rdU) / [MEGA](https://mega.nz/file/BjwVjaJB#nkzwmlRRWSNDI91Kkvi0jcPqwjyI3gzm4PLK0dGRuwM)|Blocked by Netflix on YouTube. Use MEGA link instead.|
 |2023-9-22|YOU CRINGE, YOU CHUG, YOU DRINK, YOU DEVELOP A HABIT, START EARLIER IN THE DAY, DRINK MORE, DISREGARD FAMILY, RESPONSIBILITIES SLIP, DIABETE|[YouTube](https://youtu.be/8VDYvy-LDWU) / [MEGA](https://mega.nz/file/Uqw3jRRa#-SJgomUDvVjmJ7_tsaNwa6raUc0k_aurYF8Ax_KMuzU)|Blocked worldwide on YouTube by Blink-182. I shit you not. Use MEGA link instead.|
 |2023-9-20|LOSER GETS HEP C|[https://youtu.be/rOOhzsqNpTE](https://youtu.be/rOOhzsqNpTE)||
