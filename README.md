@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[https://youtu.be/nsutGCHoqww](https://youtu.be/nsutGCHoqww)|Might get blocked on YouTube. In that case, wait for MEGA link.|
+|2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[YouTube](https://youtu.be/nsutGCHoqww) / [MEGA](https://mega.nz/file/h6YiBKaQ#qE34f7EpoCSzBNyMeHYdln3iP3-NZHbb7Lph6pAcKFM)|Blocked on YouTube by Netflix. Use MEGA link instead.|
 |2023-9-29|DOUBLE FEATURE - DOUBLE D'S - DOUBLE TROUBLE - DOUBLE CONTENT - DOUBLE SUBS - GUY WITH TWO DICKS ON REDDIT - DOUBLE PEN - DOUBLING SEASON|[https://youtu.be/raMZ4A0PygY](https://youtu.be/raMZ4A0PygY)|Stream went down once. This archive includes both segments.|
 |2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/IbKodTDG7Rs](https://youtu.be/IbKodTDG7Rs)|Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
 |2023-9-24|YOU KNOW WHAT IT IS, WE ARE GONNA DOING, NOT JUST SAYING, DOING TONIGHT, YOLU KNOW IT IS, YOU KNOW HOW HOW IS IT NO BODY EVER ASK HOW IT I|[YouTube](https://youtu.be/aUQKlaK4rdU) / [MEGA](https://mega.nz/file/BjwVjaJB#nkzwmlRRWSNDI91Kkvi0jcPqwjyI3gzm4PLK0dGRuwM)|Blocked by Netflix on YouTube. Use MEGA link instead.|
