@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-10-6|WHAT IF WE JUST GOT A LITTLE DRUNK ON A FRIDAY|[https://youtu.be/C01QwcEPFsk](https://youtu.be/C01QwcEPFsk)||
 |2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[YouTube](https://youtu.be/nsutGCHoqww) / [MEGA](https://mega.nz/file/h6YiBKaQ#qE34f7EpoCSzBNyMeHYdln3iP3-NZHbb7Lph6pAcKFM)|Blocked on YouTube by Netflix. Use MEGA link instead.|
 |2023-9-29|DOUBLE FEATURE - DOUBLE D'S - DOUBLE TROUBLE - DOUBLE CONTENT - DOUBLE SUBS - GUY WITH TWO DICKS ON REDDIT - DOUBLE PEN - DOUBLING SEASON|[https://youtu.be/raMZ4A0PygY](https://youtu.be/raMZ4A0PygY)|Stream went down once. This archive includes both segments.|
 |2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/IbKodTDG7Rs](https://youtu.be/IbKodTDG7Rs)|Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
