@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-10-8|!GRID NEW AND IMPROVED GRID STREAM - DONATE TO PUT YOUR IMAGE ON SCREEN - ARCHED FEET - BABY BLUE NAIL POLISH - DOUBLE JOINTED DRIP|[https://youtu.be/NxuWji7wzC8](https://youtu.be/NxuWji7wzC8)||
 |2023-10-7|OPENING A $35K LEGENDS BOX - MAGIC OPENING - MAGIC ON A SATURDAY - SUB PACK GIVEAWAY|[https://youtu.be/idFQSqvFfsA](https://youtu.be/idFQSqvFfsA)||
 |2023-10-6|WHAT IF WE JUST GOT A LITTLE DRUNK ON A FRIDAY|[https://youtu.be/C01QwcEPFsk](https://youtu.be/C01QwcEPFsk)||
 |2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[YouTube](https://youtu.be/nsutGCHoqww) / [MEGA](https://mega.nz/file/h6YiBKaQ#qE34f7EpoCSzBNyMeHYdln3iP3-NZHbb7Lph6pAcKFM)|Blocked on YouTube by Netflix. Use MEGA link instead.|
