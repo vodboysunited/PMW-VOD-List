@@ -13,12 +13,12 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-10-8|!GRID NEW AND IMPROVED GRID STREAM - DONATE TO PUT YOUR IMAGE ON SCREEN - ARCHED FEET - BABY BLUE NAIL POLISH - DOUBLE JOINTED DRIP|[https://youtu.be/NxuWji7wzC8](https://youtu.be/NxuWji7wzC8)||
+|2023-10-8|!GRID NEW AND IMPROVED GRID STREAM - DONATE TO PUT YOUR IMAGE ON SCREEN - ARCHED FEET - BABY BLUE NAIL POLISH - DOUBLE JOINTED DRIP|[YouTube](https://youtu.be/NxuWji7wzC8) / [MEGA](https://mega.nz/file/I6o2jJBJ#y5KncSRoOKMEDkCaNc5kfZm3Ak7gOr0_0lT0Ar0pdbc)|Blocked on YouTube by Weezer (not a joke). Use MEGA link instead.|
 |2023-10-7|OPENING A $35K LEGENDS BOX - MAGIC OPENING - MAGIC ON A SATURDAY - SUB PACK GIVEAWAY|[https://youtu.be/idFQSqvFfsA](https://youtu.be/idFQSqvFfsA)||
 |2023-10-6|WHAT IF WE JUST GOT A LITTLE DRUNK ON A FRIDAY|[https://youtu.be/C01QwcEPFsk](https://youtu.be/C01QwcEPFsk)||
 |2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[YouTube](https://youtu.be/nsutGCHoqww) / [MEGA](https://mega.nz/file/h6YiBKaQ#qE34f7EpoCSzBNyMeHYdln3iP3-NZHbb7Lph6pAcKFM)|Blocked on YouTube by Netflix. Use MEGA link instead.|
 |2023-9-29|DOUBLE FEATURE - DOUBLE D'S - DOUBLE TROUBLE - DOUBLE CONTENT - DOUBLE SUBS - GUY WITH TWO DICKS ON REDDIT - DOUBLE PEN - DOUBLING SEASON|[https://youtu.be/raMZ4A0PygY](https://youtu.be/raMZ4A0PygY)|Stream went down once. This archive includes both segments.|
-|2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/IbKodTDG7Rs](https://youtu.be/IbKodTDG7Rs)|Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
+|2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/9FuvmQGG3jo](https://youtu.be/9FuvmQGG3jo)|YouTube stopped processing this video, reuploaded. Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
 |2023-9-24|YOU KNOW WHAT IT IS, WE ARE GONNA DOING, NOT JUST SAYING, DOING TONIGHT, YOLU KNOW IT IS, YOU KNOW HOW HOW IS IT NO BODY EVER ASK HOW IT I|[YouTube](https://youtu.be/aUQKlaK4rdU) / [MEGA](https://mega.nz/file/BjwVjaJB#nkzwmlRRWSNDI91Kkvi0jcPqwjyI3gzm4PLK0dGRuwM)|Blocked by Netflix on YouTube. Use MEGA link instead.|
 |2023-9-22|YOU CRINGE, YOU CHUG, YOU DRINK, YOU DEVELOP A HABIT, START EARLIER IN THE DAY, DRINK MORE, DISREGARD FAMILY, RESPONSIBILITIES SLIP, DIABETE|[YouTube](https://youtu.be/8VDYvy-LDWU) / [MEGA](https://mega.nz/file/Uqw3jRRa#-SJgomUDvVjmJ7_tsaNwa6raUc0k_aurYF8Ax_KMuzU)|Blocked worldwide on YouTube by Blink-182. I shit you not. Use MEGA link instead.|
 |2023-9-20|LOSER GETS HEP C|[https://youtu.be/rOOhzsqNpTE](https://youtu.be/rOOhzsqNpTE)||
