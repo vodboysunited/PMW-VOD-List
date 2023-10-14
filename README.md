@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-10-13|!GG FRIDAY THE 13TH SCARY SPOOKY NICK OR TREAT LIVE|[https://youtu.be/asm\_d76nohs](https://youtu.be/asm_d76nohs)||
 |2023-10-11|!GG GAMERSUPPS SHAKER RELEASE - HIGH LAUGH YOU LOSE TODAY|[https://youtu.be/Xcw5JNh4hfo](https://youtu.be/Xcw5JNh4hfo)||
 |2023-10-8|!GRID NEW AND IMPROVED GRID STREAM - DONATE TO PUT YOUR IMAGE ON SCREEN - ARCHED FEET - BABY BLUE NAIL POLISH - DOUBLE JOINTED DRIP|[YouTube](https://youtu.be/NxuWji7wzC8) / [MEGA](https://mega.nz/file/I6o2jJBJ#y5KncSRoOKMEDkCaNc5kfZm3Ak7gOr0_0lT0Ar0pdbc)|Blocked on YouTube by Weezer (not a joke). Use MEGA link instead.|
 |2023-10-7|OPENING A $35K LEGENDS BOX - MAGIC OPENING - MAGIC ON A SATURDAY - SUB PACK GIVEAWAY|[https://youtu.be/idFQSqvFfsA](https://youtu.be/idFQSqvFfsA)||
