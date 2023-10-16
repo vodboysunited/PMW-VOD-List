@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-10-15|stream ends when i find true beauty in this world|[https://youtu.be/4a7zxiXg3MY](https://youtu.be/4a7zxiXg3MY)||
+|2023-10-15|stream ends when i find true beauty in this world|[YouTube](https://youtu.be/4a7zxiXg3MY) / [MEGA](https://mega.nz/file/R3IjjSIS#2g483UB_pjlhytwYisrP1BRb6ETWktW-lHBHPomXNfo)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-14|DOCTOR W H OMEGALUL - COLLECTOR BOXES - RETARDIS - SONIC SCREW|[https://youtu.be/rPXOQFuvWNA](https://youtu.be/rPXOQFuvWNA)||
 |2023-10-13|!GG FRIDAY THE 13TH SCARY SPOOKY NICK OR TREAT LIVE|[https://youtu.be/asm\_d76nohs](https://youtu.be/asm_d76nohs)||
 |2023-10-11|!GG GAMERSUPPS SHAKER RELEASE - HIGH LAUGH YOU LOSE TODAY|[https://youtu.be/Xcw5JNh4hfo](https://youtu.be/Xcw5JNh4hfo)||
