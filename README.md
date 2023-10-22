@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-10-22|OPENING TWO UNLIMITED PACKS QUICK STREAM LOSING EVERYTHING BLACK LOTUS|[https://youtu.be/K2OPsfotA6Y](https://youtu.be/K2OPsfotA6Y)||
 |2023-10-18|Today's stream is prerecorded and entirely scripted. What you're about to see is the culmination of months of pre-production and planning.|[YouTube](https://youtu.be/7t7kI7M1b74) / [MEGA](https://mega.nz/file/4vx02ajC#0sT_awIBNrfa8MEawLVjMpK0w09dHwllitIafzeLIH4)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-15|stream ends when i find true beauty in this world|[YouTube](https://youtu.be/4a7zxiXg3MY) / [MEGA](https://mega.nz/file/R3IjjSIS#2g483UB_pjlhytwYisrP1BRb6ETWktW-lHBHPomXNfo)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-14|DOCTOR W H OMEGALUL - COLLECTOR BOXES - RETARDIS - SONIC SCREW|[https://youtu.be/rPXOQFuvWNA](https://youtu.be/rPXOQFuvWNA)||
