@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-10-25|BACK FROM TWITCHCON - GIVING YOU ALL THE DEETS - DONT BREATHE MY AIR POVERTY BOY - THE CAR GOES ZOOM AND MY BALLS STAY EMPTY !GG|[https://youtu.be/wbDl0xG5wf8](https://youtu.be/wbDl0xG5wf8)|Will probably get blocked on YouTube. Wait for MEGA link.|
+|2023-10-25|BACK FROM TWITCHCON - GIVING YOU ALL THE DEETS - DONT BREATHE MY AIR POVERTY BOY - THE CAR GOES ZOOM AND MY BALLS STAY EMPTY !GG|[YouTube](https://youtu.be/wbDl0xG5wf8) / [MEGA](https://mega.nz/file/4vBXwbwJ#KgfKpl8rwxY0e0zRbiF0SYR4TfHXq3MT-xUfhzp4ujU)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-22|MEETUP AT THE GAMER SUPPS BOOTH AT TWITCH CON|[https://youtu.be/JqP7ANosbK8](https://youtu.be/JqP7ANosbK8)||
 |2023-10-22|OPENING TWO UNLIMITED PACKS QUICK STREAM LOSING EVERYTHING BLACK LOTUS|[https://youtu.be/K2OPsfotA6Y](https://youtu.be/K2OPsfotA6Y)||
 |2023-10-18|Today's stream is prerecorded and entirely scripted. What you're about to see is the culmination of months of pre-production and planning.|[YouTube](https://youtu.be/7t7kI7M1b74) / [MEGA](https://mega.nz/file/4vx02ajC#0sT_awIBNrfa8MEawLVjMpK0w09dHwllitIafzeLIH4)|Blocked on YouTube. Use MEGA link instead.|
