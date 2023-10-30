@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-10-29|HALLOWEEN STREAM - FACE PAINTING - CANDY TIER LIST - I CAN FINALLY PLAY GAMES|[https://youtu.be/AICGpYOkAE0](https://youtu.be/AICGpYOkAE0)||
 |2023-10-27|CRINGE YOU DRINK TONIGHT - SICK BUT THE SHOW MUST GO ON - DRINKING HELPS THE FLU|[https://youtu.be/PR6679b2Xdo](https://youtu.be/PR6679b2Xdo)|The ending is abrupt. OBS crashed or something so Wubby ended stream there.|
 |2023-10-25|BACK FROM TWITCHCON - GIVING YOU ALL THE DEETS - DONT BREATHE MY AIR POVERTY BOY - THE CAR GOES ZOOM AND MY BALLS STAY EMPTY !GG|[YouTube](https://youtu.be/wbDl0xG5wf8) / [MEGA](https://mega.nz/file/4vBXwbwJ#KgfKpl8rwxY0e0zRbiF0SYR4TfHXq3MT-xUfhzp4ujU)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-22|MEETUP AT THE GAMER SUPPS BOOTH AT TWITCH CON|[https://youtu.be/JqP7ANosbK8](https://youtu.be/JqP7ANosbK8)||
