@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-3|Retirement Stream - It all ends here - I am so sorry|[https://youtu.be/vxba\_kkiS6w](https://youtu.be/vxba_kkiS6w)||
 |2023-11-1|$5000 COSTUME CONTEST BRACKET THERE CAN ONLY BE ONE WINNER - LEAFBLOWER IS LIVE !BLOWME|[https://youtu.be/8TGXP5NRlwE](https://youtu.be/8TGXP5NRlwE)|Stream went down several times towards the end. This archive includes all segments.|
 |2023-10-29|HALLOWEEN STREAM - FACE PAINTING - CANDY TIER LIST - I CAN FINALLY PLAY GAMES|[https://youtu.be/AICGpYOkAE0](https://youtu.be/AICGpYOkAE0)||
 |2023-10-27|CRINGE YOU DRINK TONIGHT - SICK BUT THE SHOW MUST GO ON - DRINKING HELPS THE FLU|[https://youtu.be/PR6679b2Xdo](https://youtu.be/PR6679b2Xdo)|The ending is abrupt. OBS crashed or something so Wubby ended stream there.|
