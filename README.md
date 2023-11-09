@@ -13,6 +13,8 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-8|I  SPENT 200K ON PROSTITUTION AND NOW I NEED SOMEONE TO PAY MY MORTGAGE  PLEASE RESPOND HELLO? IT SAYS READ DID YOU SEE THE MESSAGE? HELLO?|[https://youtu.be/P7q0nImmuok](https://youtu.be/P7q0nImmuok)|Stream went down about halfway through. This archive includes both segments.|
+|2023-11-5|MEDIA SHARE SUNDAY BABY|[https://www.youtube.com/watch?v=Yu2CjQWL8Os](https://www.youtube.com/watch?v=Yu2CjQWL8Os)||
 |2023-11-3|Retirement Stream - It all ends here - I am so sorry|[https://youtu.be/vxba\_kkiS6w](https://youtu.be/vxba_kkiS6w)||
 |2023-11-1|$5000 COSTUME CONTEST BRACKET THERE CAN ONLY BE ONE WINNER - LEAFBLOWER IS LIVE !BLOWME|[https://youtu.be/8TGXP5NRlwE](https://youtu.be/8TGXP5NRlwE)|Stream went down several times towards the end. This archive includes all segments.|
 |2023-10-29|HALLOWEEN STREAM - FACE PAINTING - CANDY TIER LIST - I CAN FINALLY PLAY GAMES|[https://youtu.be/AICGpYOkAE0](https://youtu.be/AICGpYOkAE0)||
