@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-10|SSSNIPERWOLF BOUNCING ON BALLS - WOW CLASSIC UPDATE - FISH VIDEO|[https://youtu.be/VLM4MYNg-oE](https://youtu.be/VLM4MYNg-oE)||
 |2023-11-8|I  SPENT 200K ON PROSTITUTION AND NOW I NEED SOMEONE TO PAY MY MORTGAGE  PLEASE RESPOND HELLO? IT SAYS READ DID YOU SEE THE MESSAGE? HELLO?|[https://youtu.be/P7q0nImmuok](https://youtu.be/P7q0nImmuok)|Stream went down about halfway through. This archive includes both segments.|
 |2023-11-5|MEDIA SHARE SUNDAY BABY|[https://www.youtube.com/watch?v=Yu2CjQWL8Os](https://www.youtube.com/watch?v=Yu2CjQWL8Os)||
 |2023-11-3|Retirement Stream - It all ends here - I am so sorry|[https://youtu.be/vxba\_kkiS6w](https://youtu.be/vxba_kkiS6w)||
