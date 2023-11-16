@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-15|I  NEED EVERYONE TO DONATE RIGHT NOW TO MY CHARITY I SWEAR TO GOD THIS  MONEY WILL REACH THE CHARITY I AM DONATING IT ALL ASAP GIFTED SUBS PLS|[https://youtu.be/q5Rdi0WDM0k](https://youtu.be/q5Rdi0WDM0k)||
 |2023-11-12|BAN  APPEALS CHAT DECIDES - GETTING HARD IS SOMETHING A LOT OF GUYS STRUGGLE  WITH IF ANYTHING A SOFT PENIS IS IDEAL FOR ALL KINDS OF THINGS|[https://youtu.be/7nPXi3YKQ84](https://youtu.be/7nPXi3YKQ84)||
 |2023-11-10|SSSNIPERWOLF BOUNCING ON BALLS - WOW CLASSIC UPDATE - FISH VIDEO|[https://youtu.be/VLM4MYNg-oE](https://youtu.be/VLM4MYNg-oE)||
 |2023-11-8|I  SPENT 200K ON PROSTITUTION AND NOW I NEED SOMEONE TO PAY MY MORTGAGE  PLEASE RESPOND HELLO? IT SAYS READ DID YOU SEE THE MESSAGE? HELLO?|[https://youtu.be/P7q0nImmuok](https://youtu.be/P7q0nImmuok)|Stream went down about halfway through. This archive includes both segments.|
