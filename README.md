@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-19|BUILD A COMMUNITY IN YOUR OWN IMAGE: WITHOUT TALENT - CHANGE OF PLANS - HARDCORE GRID - PRICES HALVED - STAKES DOUBLED|[https://youtu.be/0wu0jJktu4g](https://youtu.be/0wu0jJktu4g)||
 |2023-11-18|IF WE HIT MANA CRYPT, I GIVE AWAY A COLLECTORS BOX - IXALAN OPENING|[https://youtu.be/f4Y\_fuvpCLU](https://youtu.be/f4Y_fuvpCLU)|Stream went down once. This archive includes both segments.|
 |2023-11-17|DRUNK SPELLING BEE WITH PEOPLE WHO ARE NOT VERY INTELLIGENT|[https://youtu.be/kx9snLwWZ98](https://youtu.be/kx9snLwWZ98)||
 |2023-11-15|I  NEED EVERYONE TO DONATE RIGHT NOW TO MY CHARITY I SWEAR TO GOD THIS  MONEY WILL REACH THE CHARITY I AM DONATING IT ALL ASAP GIFTED SUBS PLS|[https://youtu.be/q5Rdi0WDM0k](https://youtu.be/q5Rdi0WDM0k)||
