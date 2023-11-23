@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-22|HAPPY THANKSGIVING - FESTIVITIES - REACTION FARMING AND GIVING DISEASES TO THE PEOPLE WHO WERE HERE FIRST - ITS OUR LAND NOW|[https://youtu.be/9LeW\_e5GG10](https://youtu.be/9LeW_e5GG10)||
 |2023-11-19|BUILD A COMMUNITY IN YOUR OWN IMAGE: WITHOUT TALENT - CHANGE OF PLANS - HARDCORE GRID - PRICES HALVED - STAKES DOUBLED|[https://youtu.be/0wu0jJktu4g](https://youtu.be/0wu0jJktu4g)||
 |2023-11-18|IF WE HIT MANA CRYPT, I GIVE AWAY A COLLECTORS BOX - IXALAN OPENING|[https://youtu.be/f4Y\_fuvpCLU](https://youtu.be/f4Y_fuvpCLU)|Stream went down once. This archive includes both segments.|
 |2023-11-17|DRUNK SPELLING BEE WITH PEOPLE WHO ARE NOT VERY INTELLIGENT|[https://youtu.be/kx9snLwWZ98](https://youtu.be/kx9snLwWZ98)||
