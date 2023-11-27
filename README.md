@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-26|WUBBY 'TALENT' SHOW - NONE OF YOU ARE TALENTED - CHAT PICKS WINNER|[https://youtu.be/SvWhUAnOa8Y](https://youtu.be/SvWhUAnOa8Y)||
 |2023-11-24|SKEETER FRIDAY - MAYBE A LITTLE THIS A LITTLE THAT - GAMERSUPPS CODE WUBBY !GG|[https://youtu.be/CV6yxVl7FLI](https://youtu.be/CV6yxVl7FLI)||
 |2023-11-22|HAPPY THANKSGIVING - FESTIVITIES - REACTION FARMING AND GIVING DISEASES TO THE PEOPLE WHO WERE HERE FIRST - ITS OUR LAND NOW|[https://youtu.be/9LeW\_e5GG10](https://youtu.be/9LeW_e5GG10)||
 |2023-11-19|BUILD A COMMUNITY IN YOUR OWN IMAGE: WITHOUT TALENT - CHANGE OF PLANS - HARDCORE GRID - PRICES HALVED - STAKES DOUBLED|[https://youtu.be/0wu0jJktu4g](https://youtu.be/0wu0jJktu4g)||
