@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-11-29|DATING AS MANY KOREAN WOMEN AS POSSIBLE - FULL FRONTAL SPEEDRUN - THE KOREA HAREM IS IN FULL SWING - TIS THE SEASON|[https://youtu.be/akdXkFcAWco](https://youtu.be/akdXkFcAWco)||
 |2023-11-28|SHORT MAGIC MONDAY STREAM - THE RAREST CARD I OWN - QUICK GAMBLE ALL OR NOTHING|[https://youtu.be/8nEB26rLkco](https://youtu.be/8nEB26rLkco)||
 |2023-11-26|WUBBY 'TALENT' SHOW - NONE OF YOU ARE TALENTED - CHAT PICKS WINNER|[https://youtu.be/SvWhUAnOa8Y](https://youtu.be/SvWhUAnOa8Y)||
 |2023-11-24|SKEETER FRIDAY - MAYBE A LITTLE THIS A LITTLE THAT - GAMERSUPPS CODE WUBBY !GG|[https://youtu.be/CV6yxVl7FLI](https://youtu.be/CV6yxVl7FLI)||
