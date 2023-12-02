@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-12-1|GUESSING WHICH CHATTER IS RACIST - MATCHING FEET TO THE WOMAN - WHICH CHATTER COMMITTED THE WORST CRIME - WHY WONT MORE KOREAN WOMEN DATE ME|[https://youtu.be/EN55Y\_lTtgk](https://youtu.be/EN55Y_lTtgk)||
 |2023-11-29|DATING AS MANY KOREAN WOMEN AS POSSIBLE - FULL FRONTAL SPEEDRUN - THE KOREA HAREM IS IN FULL SWING - TIS THE SEASON|[https://youtu.be/akdXkFcAWco](https://youtu.be/akdXkFcAWco)||
 |2023-11-28|SHORT MAGIC MONDAY STREAM - THE RAREST CARD I OWN - QUICK GAMBLE ALL OR NOTHING|[https://youtu.be/8nEB26rLkco](https://youtu.be/8nEB26rLkco)||
 |2023-11-26|WUBBY 'TALENT' SHOW - NONE OF YOU ARE TALENTED - CHAT PICKS WINNER|[https://youtu.be/SvWhUAnOa8Y](https://youtu.be/SvWhUAnOa8Y)||
