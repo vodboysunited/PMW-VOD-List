@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-12-6|WHERE  IS PAPI - IM HERE TO SEX FOREIGN DUDES ONLY - ENGLISH OPTIONAL -  OBESITY JUST A NUMBER - GET OVER HERE AND LET ME PUT A RING ON THAT|[YouTube](https://youtu.be/W0bapWRSSHI) / MEGA (pending)|Will likely be blocked on YouTube. Wait for MEGA link.|
 |2023-12-4|LORD OF THE RINGS SERIALIZED HUNT - BLACK ARAGORN - BLANDALF THE BLACK - BLIMLI SON OF BLOIN - BLEGOLAS - BLOLOM - BLARUMAN THE BLUE !GG|[https://youtu.be/P7j8MT-hXZA](https://youtu.be/P7j8MT-hXZA)||
 |2023-12-1|GUESSING WHICH CHATTER IS RACIST - MATCHING FEET TO THE WOMAN - WHICH CHATTER COMMITTED THE WORST CRIME - WHY WONT MORE KOREAN WOMEN DATE ME|[https://youtu.be/EN55Y\_lTtgk](https://youtu.be/EN55Y_lTtgk)||
 |2023-11-29|DATING AS MANY KOREAN WOMEN AS POSSIBLE - FULL FRONTAL SPEEDRUN - THE KOREA HAREM IS IN FULL SWING - TIS THE SEASON|[https://youtu.be/akdXkFcAWco](https://youtu.be/akdXkFcAWco)||
