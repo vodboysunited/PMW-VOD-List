@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-12-13|CRINGE YOU DRINK - BARE BUNGHOLE LIVE - BRICKED SALAMI - SLAMMING BALLS - I DIDNT READ THE NEW TOS I JUST ASSUMED !blowme !GG|[https://youtu.be/nF06XmE0RTc](https://youtu.be/nF06XmE0RTc)|No clue if YouTube is going to allow this... we'll see. If not, wait for MEGA link.|
 |2023-12-10|COOKING SHRIMP LIVE ON DELTA AIRLINES - SHRIMP IN AN AIRPLANE SINK - SKINWALKERS AND PEC TITTIES|[https://youtu.be/QZ3ZQr8vqEY](https://youtu.be/QZ3ZQr8vqEY)||
 |2023-12-8|TWITCH IS IN A NEW ERA - ACTUALLY DATING KOREAN WOMEN TODAY I SWEAR !GG|[https://youtu.be/jMiN2dXcqrQ](https://youtu.be/jMiN2dXcqrQ)||
 |2023-12-6|WHERE  IS PAPI - IM HERE TO SEX FOREIGN DUDES ONLY - ENGLISH OPTIONAL -  OBESITY JUST A NUMBER - GET OVER HERE AND LET ME PUT A RING ON THAT|[YouTube](https://youtu.be/W0bapWRSSHI) / [MEGA](https://mega.nz/file/Q7BEUZYA#j16oTmGhgYxNngg0hYxbJeh8baZB5W-_9k-oJ4Zcgw8)|May get blocked on YouTube in the future. Use provided MEGA link if that is ever the case.|
