@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2023-12-24|CHRISTMAS EVE - SHORT LITTLE STREAM BEFORE I ROT WITH GRANDMA|[https://youtu.be/Ro8m2D-yvoQ](https://youtu.be/Ro8m2D-yvoQ)||
+|2023-12-24|CHRISTMAS EVE - SHORT LITTLE STREAM BEFORE I ROT WITH GRANDMA|[YouTube](https://youtu.be/Ro8m2D-yvoQ) / [MEGA](https://mega.nz/file/s251XLQS#ICPjOValbSCNNztNRVHdNYgq60bzwwXleHfsCTc8A4U)|Blocked in several countries on YouTube. Use MEGA link instead.|
 |2023-12-22|TWITCH IM COMING FOR THAT ASS|[https://youtu.be/ITVj2pgrD5k](https://youtu.be/ITVj2pgrD5k)||
 |2023-12-13|CRINGE YOU DRINK - BARE BUNGHOLE LIVE - BRICKED SALAMI - SLAMMING BALLS - I DIDNT READ THE NEW TOS I JUST ASSUMED !blowme !GG|[https://youtu.be/nF06XmE0RTc](https://youtu.be/nF06XmE0RTc)||
 |2023-12-10|COOKING SHRIMP LIVE ON DELTA AIRLINES - SHRIMP IN AN AIRPLANE SINK - SKINWALKERS AND PEC TITTIES|[https://youtu.be/QZ3ZQr8vqEY](https://youtu.be/QZ3ZQr8vqEY)||
