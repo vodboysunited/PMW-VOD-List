@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2023-12-29|Sick as a dog. We really do be living in a society|[https://youtu.be/sz67\_HcIXAM](https://youtu.be/sz67_HcIXAM)|Likely will be blocked on YouTube. Wait for MEGA link.|
 |2023-12-27|TONIGHT IS FINALLY THE NIGHT - MAKING LOVE TO THE TINIEST CHINESE WOMAN - SHE IS AN ADULT - WE WILL ACHIEVE OUR GOAL|[https://youtu.be/46sq9QNtMRs](https://youtu.be/46sq9QNtMRs)||
 |2023-12-24|CHRISTMAS EVE - SHORT LITTLE STREAM BEFORE I ROT WITH GRANDMA|[YouTube](https://youtu.be/Ro8m2D-yvoQ) / [MEGA](https://mega.nz/file/s251XLQS#ICPjOValbSCNNztNRVHdNYgq60bzwwXleHfsCTc8A4U)|Blocked in several countries on YouTube. Use MEGA link instead.|
 |2023-12-22|TWITCH IM COMING FOR THAT ASS|[https://youtu.be/ITVj2pgrD5k](https://youtu.be/ITVj2pgrD5k)||
