@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-10|CRIME - STOLEN IDENTITY - 57 MILLION DOLLARS - FEET - THIS STREAM GOT IT ALL|[YouTube](https://youtu.be/eNpzo-fPzoU) / [MEGA](https://mega.nz/file/syIzQICI#QuFooIpYz0riE5wbQ5MT4Gi2NB8wyjfrSX0teNYgXtE)|Block on YouTube in the US. Use MEGA link or VPN.|
 |2024-1-7|its all about her feet, its not sex unless youve seen her feet, the game cannot end until we see feet, tootsies, pop pop|[https://youtu.be/qipLXOFtJ9c](https://youtu.be/qipLXOFtJ9c)||
 |2024-1-5|THE WAIT IS FINALLY OVER - HOLIDAY PO BOX UNBOXING + GIVEAWAYS FOR CHAT W/ u/alluux|[https://youtu.be/ysHCjP7AWaw](https://youtu.be/ysHCjP7AWaw)||
 |2024-1-3|DOUBLE FEATURE - NO VIBRATING - THE COMPANY IS LETHAL - FINALLY SPLOOGING THE CHINESE GIRL (OVER 18)|[https://youtu.be/QLbAhg0\_Crw](https://youtu.be/QLbAhg0_Crw)||
