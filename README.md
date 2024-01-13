@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-12|DISCOVERY THE ANCIENT PAST OF OUR ANCESTORS THROUGH THE POWER OF THE INTERNET|[https://youtu.be/ozTcKCb2xrA](https://youtu.be/ozTcKCb2xrA)|Includes the false start at the beginning of stream. I think he restarted stream bc of tech issues.|
 |2024-1-11|RAVNICA REMASTERED EARLY - WE OPEN TILL WE HIT SERIALIZED - COLLECTOR BOXES OUT THE ASS|[https://youtu.be/pgmTuNzc8ZM](https://youtu.be/pgmTuNzc8ZM)||
 |2024-1-10|CRIME - STOLEN IDENTITY - 57 MILLION DOLLARS - FEET - THIS STREAM GOT IT ALL|[YouTube](https://youtu.be/eNpzo-fPzoU) / [MEGA](https://mega.nz/file/syIzQICI#QuFooIpYz0riE5wbQ5MT4Gi2NB8wyjfrSX0teNYgXtE)|Blocked on YouTube in the US. Use MEGA link or VPN.|
 |2024-1-7|its all about her feet, its not sex unless youve seen her feet, the game cannot end until we see feet, tootsies, pop pop|[https://youtu.be/qipLXOFtJ9c](https://youtu.be/qipLXOFtJ9c)||
