@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-19|IT IS COMPLETE, IT IS DONE, AND IT IS FINALLY TIME|[https://youtu.be/jim7m\_BwazQ](https://youtu.be/jim7m_BwazQ)||
 |2024-1-17|HISTORIC STREAM - DOUBLE FEATURE - BETA STARTER DECK OPENING - POWER 9 OR BUST - 90 DAY AFTER|[YouTube](https://youtu.be/QFY9AuH4JjM) / [MEGA](https://mega.nz/file/s6ZElSBS#PGoYcWTYwSSlTAv76ew8jDjKs6NFWScNefpuJ9DmWsM)|Blocked on YouTube in the US. Use MEGA link or VPN.|
 |2024-1-14|MEDIA SHARE - NO VIEW MINIMUM - IF YOU READ THIS TAKE A SHOT|[https://youtu.be/H5m70yUUbv4](https://youtu.be/H5m70yUUbv4)||
 |2024-1-12|DISCOVERY THE ANCIENT PAST OF OUR ANCESTORS THROUGH THE POWER OF THE INTERNET|[https://youtu.be/ozTcKCb2xrA](https://youtu.be/ozTcKCb2xrA)|Includes the false start at the beginning of stream. I think he restarted stream bc of tech issues.|
