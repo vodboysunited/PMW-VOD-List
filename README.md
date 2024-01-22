@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-21|A MASSACRE - DEATH HAS FOLLOWED ME AND DEATH HAS STRUCK AGAIN - IF YOUR NAME IS JERRY END IT ALL|[https://youtu.be/Ul3dUhvvQ98](https://youtu.be/Ul3dUhvvQ98)||
 |2024-1-19|IT IS COMPLETE, IT IS DONE, AND IT IS FINALLY TIME|[https://youtu.be/jim7m\_BwazQ](https://youtu.be/jim7m_BwazQ)||
 |2024-1-17|HISTORIC STREAM - DOUBLE FEATURE - BETA STARTER DECK OPENING - POWER 9 OR BUST - 90 DAY AFTER|[YouTube](https://youtu.be/QFY9AuH4JjM) / [MEGA](https://mega.nz/file/s6ZElSBS#PGoYcWTYwSSlTAv76ew8jDjKs6NFWScNefpuJ9DmWsM)|Blocked on YouTube in the US. Use MEGA link or VPN.|
 |2024-1-14|MEDIA SHARE - NO VIEW MINIMUM - IF YOU READ THIS TAKE A SHOT|[https://youtu.be/H5m70yUUbv4](https://youtu.be/H5m70yUUbv4)||
