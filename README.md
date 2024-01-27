@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-26|TAYLOR SWIFT COOCHI - AI DRAMA - FUMBLING THE TITTY BAG - STREAMER AWARDS - 90 DAYS|[https://youtu.be/8vHz1O4Ejrg](https://youtu.be/8vHz1O4Ejrg)|Stream went down, sorta. It split the recording. I did a kinda rough splice job. Will fix it when I'm in front of my computer later.|
 |2024-1-24|WUBBY SHORT FILM FESTIVAL THOUSANDS ON THE LINE SOME OF YOU SUCK A LOT OF YOU DONT|[https://youtu.be/kW5lC5mhrkE](https://youtu.be/kW5lC5mhrkE)||
 |2024-1-21|A MASSACRE - DEATH HAS FOLLOWED ME AND DEATH HAS STRUCK AGAIN - IF YOUR NAME IS JERRY END IT ALL|[https://youtu.be/Ul3dUhvvQ98](https://youtu.be/Ul3dUhvvQ98)||
 |2024-1-19|IT IS COMPLETE, IT IS DONE, AND IT IS FINALLY TIME|[https://youtu.be/jim7m\_BwazQ](https://youtu.be/jim7m_BwazQ)||
