@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-1-28|WHO WILL BE THE WEAKEST LINK - RANDOM CHATTER EDITION - CHAT IS NOT SMOOTH BRAIN - TONIGHT IS THE NIGHT|[https://youtu.be/1gj8eDn0DYw](https://youtu.be/1gj8eDn0DYw)||
 |2024-1-26|TAYLOR SWIFT COOCHI - AI DRAMA - FUMBLING THE TITTY BAG - STREAMER AWARDS - 90 DAYS|[YouTube](https://youtu.be/_NDC8_aJLhg) / [MEGA](https://mega.nz/file/Zj5FhaaQ#G_e10JMwII-czMdaM-zMGstp2e0qe20zIt7RSeK1b2M)|Recording got split because of Cox. This archive contains both segments. Blocked in USA (90DF). Use MEGA link or use VPN.|
 |2024-1-24|WUBBY SHORT FILM FESTIVAL THOUSANDS ON THE LINE SOME OF YOU SUCK A LOT OF YOU DONT|[https://youtu.be/kW5lC5mhrkE](https://youtu.be/kW5lC5mhrkE)||
 |2024-1-21|A MASSACRE - DEATH HAS FOLLOWED ME AND DEATH HAS STRUCK AGAIN - IF YOUR NAME IS JERRY END IT ALL|[https://youtu.be/Ul3dUhvvQ98](https://youtu.be/Ul3dUhvvQ98)||
