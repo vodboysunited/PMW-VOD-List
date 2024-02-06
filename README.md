@@ -13,104 +13,105 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2024-2-2|EARLY BABY - EXPLOSIONS - LATINA TITS- GRADED CARDS - MEAT|[https://youtu.be/I1P3ZBZaS8Q](https://youtu.be/I1P3ZBZaS8Q)||
-|2024-1-31|HIGH LAUGH YOU LOSE - DOUBLE FEATURE - MURDERS AT KARLOV MANOR - TAYLOR DRAMA - YAPATHON|[https://youtu.be/W15KSF3ygaE](https://youtu.be/W15KSF3ygaE)||
-|2024-1-28|WHO WILL BE THE WEAKEST LINK - RANDOM CHATTER EDITION - CHAT IS NOT SMOOTH BRAIN - TONIGHT IS THE NIGHT|[https://youtu.be/1gj8eDn0DYw](https://youtu.be/1gj8eDn0DYw)||
+|2024-2-6|IS ANYONE EVEN HERE - JAPAN STREAM - EXPLORING JAPAN LATER THIS WEEK - CRINGE YOU DRINK NOW|[](https://youtu.be/oqhgxfk4p8s)|Stream went down about 4 times. This archive includes all segments.|
+|2024-2-2|EARLY BABY - EXPLOSIONS - LATINA TITS- GRADED CARDS - MEAT|[](https://youtu.be/i1p3zbzas8q)||
+|2024-1-31|HIGH LAUGH YOU LOSE - DOUBLE FEATURE - MURDERS AT KARLOV MANOR - TAYLOR DRAMA - YAPATHON|[](https://youtu.be/w15ksf3ygae)||
+|2024-1-28|WHO WILL BE THE WEAKEST LINK - RANDOM CHATTER EDITION - CHAT IS NOT SMOOTH BRAIN - TONIGHT IS THE NIGHT|[](https://youtu.be/1gj8edn0dyw)||
 |2024-1-26|TAYLOR SWIFT COOCHI - AI DRAMA - FUMBLING THE TITTY BAG - STREAMER AWARDS - 90 DAYS|[YouTube](https://youtu.be/_NDC8_aJLhg) / [MEGA](https://mega.nz/file/Zj5FhaaQ#G_e10JMwII-czMdaM-zMGstp2e0qe20zIt7RSeK1b2M)|Recording got split because of Cox. This archive contains both segments. Blocked in USA (90DF). Use MEGA link or use VPN.|
-|2024-1-24|WUBBY SHORT FILM FESTIVAL THOUSANDS ON THE LINE SOME OF YOU SUCK A LOT OF YOU DONT|[https://youtu.be/kW5lC5mhrkE](https://youtu.be/kW5lC5mhrkE)||
-|2024-1-21|A MASSACRE - DEATH HAS FOLLOWED ME AND DEATH HAS STRUCK AGAIN - IF YOUR NAME IS JERRY END IT ALL|[https://youtu.be/Ul3dUhvvQ98](https://youtu.be/Ul3dUhvvQ98)||
-|2024-1-19|IT IS COMPLETE, IT IS DONE, AND IT IS FINALLY TIME|[https://youtu.be/jim7m\_BwazQ](https://youtu.be/jim7m_BwazQ)||
+|2024-1-24|WUBBY SHORT FILM FESTIVAL THOUSANDS ON THE LINE SOME OF YOU SUCK A LOT OF YOU DONT|[](https://youtu.be/kw5lc5mhrke)||
+|2024-1-21|A MASSACRE - DEATH HAS FOLLOWED ME AND DEATH HAS STRUCK AGAIN - IF YOUR NAME IS JERRY END IT ALL|[](https://youtu.be/ul3duhvvq98)||
+|2024-1-19|IT IS COMPLETE, IT IS DONE, AND IT IS FINALLY TIME|[](https://youtu.be/jim7m_bwazq)||
 |2024-1-17|HISTORIC STREAM - DOUBLE FEATURE - BETA STARTER DECK OPENING - POWER 9 OR BUST - 90 DAY AFTER|[YouTube](https://youtu.be/QFY9AuH4JjM) / [MEGA](https://mega.nz/file/s6ZElSBS#PGoYcWTYwSSlTAv76ew8jDjKs6NFWScNefpuJ9DmWsM)|Blocked on YouTube in the US. Use MEGA link or VPN.|
-|2024-1-14|MEDIA SHARE - NO VIEW MINIMUM - IF YOU READ THIS TAKE A SHOT|[https://youtu.be/H5m70yUUbv4](https://youtu.be/H5m70yUUbv4)||
-|2024-1-12|DISCOVERY THE ANCIENT PAST OF OUR ANCESTORS THROUGH THE POWER OF THE INTERNET|[https://youtu.be/ozTcKCb2xrA](https://youtu.be/ozTcKCb2xrA)|Includes the false start at the beginning of stream. I think he restarted stream bc of tech issues.|
-|2024-1-11|RAVNICA REMASTERED EARLY - WE OPEN TILL WE HIT SERIALIZED - COLLECTOR BOXES OUT THE ASS|[https://youtu.be/pgmTuNzc8ZM](https://youtu.be/pgmTuNzc8ZM)||
+|2024-1-14|MEDIA SHARE - NO VIEW MINIMUM - IF YOU READ THIS TAKE A SHOT|[](https://youtu.be/h5m70yuubv4)||
+|2024-1-12|DISCOVERY THE ANCIENT PAST OF OUR ANCESTORS THROUGH THE POWER OF THE INTERNET|[](https://youtu.be/oztckcb2xra)|Includes the false start at the beginning of stream. I think he restarted stream bc of tech issues.|
+|2024-1-11|RAVNICA REMASTERED EARLY - WE OPEN TILL WE HIT SERIALIZED - COLLECTOR BOXES OUT THE ASS|[](https://youtu.be/pgmtunzc8zm)||
 |2024-1-10|CRIME - STOLEN IDENTITY - 57 MILLION DOLLARS - FEET - THIS STREAM GOT IT ALL|[YouTube](https://youtu.be/eNpzo-fPzoU) / [MEGA](https://mega.nz/file/syIzQICI#QuFooIpYz0riE5wbQ5MT4Gi2NB8wyjfrSX0teNYgXtE)|Blocked on YouTube in the US. Use MEGA link or VPN.|
-|2024-1-7|its all about her feet, its not sex unless youve seen her feet, the game cannot end until we see feet, tootsies, pop pop|[https://youtu.be/qipLXOFtJ9c](https://youtu.be/qipLXOFtJ9c)||
-|2024-1-5|THE WAIT IS FINALLY OVER - HOLIDAY PO BOX UNBOXING + GIVEAWAYS FOR CHAT W/ alluux|[https://youtu.be/ysHCjP7AWaw](https://youtu.be/ysHCjP7AWaw)||
-|2024-1-3|DOUBLE FEATURE - NO VIBRATING - THE COMPANY IS LETHAL - FINALLY SPLOOGING THE CHINESE GIRL (OVER 18)|[https://youtu.be/QLbAhg0\_Crw](https://youtu.be/QLbAhg0_Crw)||
+|2024-1-7|its all about her feet, its not sex unless youve seen her feet, the game cannot end until we see feet, tootsies, pop pop|[](https://youtu.be/qiplxoftj9c)||
+|2024-1-5|THE WAIT IS FINALLY OVER - HOLIDAY PO BOX UNBOXING + GIVEAWAYS FOR CHAT W/ alluux|[](https://youtu.be/yshcjp7awaw)||
+|2024-1-3|DOUBLE FEATURE - NO VIBRATING - THE COMPANY IS LETHAL - FINALLY SPLOOGING THE CHINESE GIRL (OVER 18)|[](https://youtu.be/qlbahg0_crw)||
 |2023-12-29|Sick as a dog. We really do be living in a society|[YouTube](https://youtu.be/sz67_HcIXAM) / [MEGA](https://mega.nz/file/gipTWb7L#sq7gSF0nviVjdkuu3_EMvarlZxkXpr1xs7_bv0RuS2E)|Blocked on YouTube in the USA. Use MEGA link instead.|
-|2023-12-27|TONIGHT IS FINALLY THE NIGHT - MAKING LOVE TO THE TINIEST CHINESE WOMAN - SHE IS AN ADULT - WE WILL ACHIEVE OUR GOAL|[https://youtu.be/46sq9QNtMRs](https://youtu.be/46sq9QNtMRs)||
+|2023-12-27|TONIGHT IS FINALLY THE NIGHT - MAKING LOVE TO THE TINIEST CHINESE WOMAN - SHE IS AN ADULT - WE WILL ACHIEVE OUR GOAL|[](https://youtu.be/46sq9qntmrs)||
 |2023-12-24|CHRISTMAS EVE - SHORT LITTLE STREAM BEFORE I ROT WITH GRANDMA|[YouTube](https://youtu.be/Ro8m2D-yvoQ) / [MEGA](https://mega.nz/file/s251XLQS#ICPjOValbSCNNztNRVHdNYgq60bzwwXleHfsCTc8A4U)|Blocked in several countries on YouTube. Use MEGA link instead.|
-|2023-12-22|TWITCH IM COMING FOR THAT ASS|[https://youtu.be/ITVj2pgrD5k](https://youtu.be/ITVj2pgrD5k)||
-|2023-12-13|CRINGE YOU DRINK - BARE BUNGHOLE LIVE - BRICKED SALAMI - SLAMMING BALLS - I DIDNT READ THE NEW TOS I JUST ASSUMED !blowme !GG|[https://youtu.be/nF06XmE0RTc](https://youtu.be/nF06XmE0RTc)||
-|2023-12-10|COOKING SHRIMP LIVE ON DELTA AIRLINES - SHRIMP IN AN AIRPLANE SINK - SKINWALKERS AND PEC TITTIES|[https://youtu.be/QZ3ZQr8vqEY](https://youtu.be/QZ3ZQr8vqEY)||
-|2023-12-8|TWITCH IS IN A NEW ERA - ACTUALLY DATING KOREAN WOMEN TODAY I SWEAR !GG|[https://youtu.be/jMiN2dXcqrQ](https://youtu.be/jMiN2dXcqrQ)||
+|2023-12-22|TWITCH IM COMING FOR THAT ASS|[](https://youtu.be/itvj2pgrd5k)||
+|2023-12-13|CRINGE YOU DRINK - BARE BUNGHOLE LIVE - BRICKED SALAMI - SLAMMING BALLS - I DIDNT READ THE NEW TOS I JUST ASSUMED !blowme !GG|[](https://youtu.be/nf06xme0rtc)||
+|2023-12-10|COOKING SHRIMP LIVE ON DELTA AIRLINES - SHRIMP IN AN AIRPLANE SINK - SKINWALKERS AND PEC TITTIES|[](https://youtu.be/qz3zqr8vqey)||
+|2023-12-8|TWITCH IS IN A NEW ERA - ACTUALLY DATING KOREAN WOMEN TODAY I SWEAR !GG|[](https://youtu.be/jmin2dxcqrq)||
 |2023-12-6|WHERE  IS PAPI - IM HERE TO SEX FOREIGN DUDES ONLY - ENGLISH OPTIONAL -  OBESITY JUST A NUMBER - GET OVER HERE AND LET ME PUT A RING ON THAT|[YouTube](https://youtu.be/W0bapWRSSHI) / [MEGA](https://mega.nz/file/Q7BEUZYA#j16oTmGhgYxNngg0hYxbJeh8baZB5W-_9k-oJ4Zcgw8)|May get blocked on YouTube in the future. Use provided MEGA link if that is ever the case.|
-|2023-12-4|LORD OF THE RINGS SERIALIZED HUNT - BLACK ARAGORN - BLANDALF THE BLACK - BLIMLI SON OF BLOIN - BLEGOLAS - BLOLOM - BLARUMAN THE BLUE !GG|[https://youtu.be/P7j8MT-hXZA](https://youtu.be/P7j8MT-hXZA)||
-|2023-12-1|GUESSING WHICH CHATTER IS RACIST - MATCHING FEET TO THE WOMAN - WHICH CHATTER COMMITTED THE WORST CRIME - WHY WONT MORE KOREAN WOMEN DATE ME|[https://youtu.be/EN55Y\_lTtgk](https://youtu.be/EN55Y_lTtgk)||
-|2023-11-29|DATING AS MANY KOREAN WOMEN AS POSSIBLE - FULL FRONTAL SPEEDRUN - THE KOREA HAREM IS IN FULL SWING - TIS THE SEASON|[https://youtu.be/akdXkFcAWco](https://youtu.be/akdXkFcAWco)||
-|2023-11-28|SHORT MAGIC MONDAY STREAM - THE RAREST CARD I OWN - QUICK GAMBLE ALL OR NOTHING|[https://youtu.be/8nEB26rLkco](https://youtu.be/8nEB26rLkco)||
-|2023-11-26|WUBBY 'TALENT' SHOW - NONE OF YOU ARE TALENTED - CHAT PICKS WINNER|[https://youtu.be/SvWhUAnOa8Y](https://youtu.be/SvWhUAnOa8Y)||
-|2023-11-24|SKEETER FRIDAY - MAYBE A LITTLE THIS A LITTLE THAT - GAMERSUPPS CODE WUBBY !GG|[https://youtu.be/CV6yxVl7FLI](https://youtu.be/CV6yxVl7FLI)||
-|2023-11-22|HAPPY THANKSGIVING - FESTIVITIES - REACTION FARMING AND GIVING DISEASES TO THE PEOPLE WHO WERE HERE FIRST - ITS OUR LAND NOW|[https://youtu.be/9LeW\_e5GG10](https://youtu.be/9LeW_e5GG10)||
-|2023-11-19|BUILD A COMMUNITY IN YOUR OWN IMAGE: WITHOUT TALENT - CHANGE OF PLANS - HARDCORE GRID - PRICES HALVED - STAKES DOUBLED|[https://youtu.be/0wu0jJktu4g](https://youtu.be/0wu0jJktu4g)||
-|2023-11-18|IF WE HIT MANA CRYPT, I GIVE AWAY A COLLECTORS BOX - IXALAN OPENING|[https://youtu.be/f4Y\_fuvpCLU](https://youtu.be/f4Y_fuvpCLU)|Stream went down once. This archive includes both segments.|
-|2023-11-17|DRUNK SPELLING BEE WITH PEOPLE WHO ARE NOT VERY INTELLIGENT|[https://youtu.be/kx9snLwWZ98](https://youtu.be/kx9snLwWZ98)||
-|2023-11-15|I  NEED EVERYONE TO DONATE RIGHT NOW TO MY CHARITY I SWEAR TO GOD THIS  MONEY WILL REACH THE CHARITY I AM DONATING IT ALL ASAP GIFTED SUBS PLS|[https://youtu.be/q5Rdi0WDM0k](https://youtu.be/q5Rdi0WDM0k)||
-|2023-11-12|BAN  APPEALS CHAT DECIDES - GETTING HARD IS SOMETHING A LOT OF GUYS STRUGGLE  WITH IF ANYTHING A SOFT PENIS IS IDEAL FOR ALL KINDS OF THINGS|[https://youtu.be/7nPXi3YKQ84](https://youtu.be/7nPXi3YKQ84)||
-|2023-11-10|SSSNIPERWOLF BOUNCING ON BALLS - WOW CLASSIC UPDATE - FISH VIDEO|[https://youtu.be/VLM4MYNg-oE](https://youtu.be/VLM4MYNg-oE)||
-|2023-11-8|I  SPENT 200K ON PROSTITUTION AND NOW I NEED SOMEONE TO PAY MY MORTGAGE  PLEASE RESPOND HELLO? IT SAYS READ DID YOU SEE THE MESSAGE? HELLO?|[https://youtu.be/P7q0nImmuok](https://youtu.be/P7q0nImmuok)|Stream went down about halfway through. This archive includes both segments.|
-|2023-11-5|MEDIA SHARE SUNDAY BABY|[https://www.youtube.com/watch?v=Yu2CjQWL8Os](https://www.youtube.com/watch?v=Yu2CjQWL8Os)||
-|2023-11-3|Retirement Stream - It all ends here - I am so sorry|[https://youtu.be/vxba\_kkiS6w](https://youtu.be/vxba_kkiS6w)||
-|2023-11-1|$5000 COSTUME CONTEST BRACKET THERE CAN ONLY BE ONE WINNER - LEAFBLOWER IS LIVE !BLOWME|[https://youtu.be/8TGXP5NRlwE](https://youtu.be/8TGXP5NRlwE)|Stream went down several times towards the end. This archive includes all segments.|
-|2023-10-29|HALLOWEEN STREAM - FACE PAINTING - CANDY TIER LIST - I CAN FINALLY PLAY GAMES|[https://youtu.be/AICGpYOkAE0](https://youtu.be/AICGpYOkAE0)||
-|2023-10-27|CRINGE YOU DRINK TONIGHT - SICK BUT THE SHOW MUST GO ON - DRINKING HELPS THE FLU|[https://youtu.be/PR6679b2Xdo](https://youtu.be/PR6679b2Xdo)|The ending is abrupt. OBS crashed or something so Wubby ended stream there.|
+|2023-12-4|LORD OF THE RINGS SERIALIZED HUNT - BLACK ARAGORN - BLANDALF THE BLACK - BLIMLI SON OF BLOIN - BLEGOLAS - BLOLOM - BLARUMAN THE BLUE !GG|[](https://youtu.be/p7j8mt-hxza)||
+|2023-12-1|GUESSING WHICH CHATTER IS RACIST - MATCHING FEET TO THE WOMAN - WHICH CHATTER COMMITTED THE WORST CRIME - WHY WONT MORE KOREAN WOMEN DATE ME|[](https://youtu.be/en55y_lttgk)||
+|2023-11-29|DATING AS MANY KOREAN WOMEN AS POSSIBLE - FULL FRONTAL SPEEDRUN - THE KOREA HAREM IS IN FULL SWING - TIS THE SEASON|[](https://youtu.be/akdxkfcawco)||
+|2023-11-28|SHORT MAGIC MONDAY STREAM - THE RAREST CARD I OWN - QUICK GAMBLE ALL OR NOTHING|[](https://youtu.be/8neb26rlkco)||
+|2023-11-26|WUBBY 'TALENT' SHOW - NONE OF YOU ARE TALENTED - CHAT PICKS WINNER|[](https://youtu.be/svwhuanoa8y)||
+|2023-11-24|SKEETER FRIDAY - MAYBE A LITTLE THIS A LITTLE THAT - GAMERSUPPS CODE WUBBY !GG|[](https://youtu.be/cv6yxvl7fli)||
+|2023-11-22|HAPPY THANKSGIVING - FESTIVITIES - REACTION FARMING AND GIVING DISEASES TO THE PEOPLE WHO WERE HERE FIRST - ITS OUR LAND NOW|[](https://youtu.be/9lew_e5gg10)||
+|2023-11-19|BUILD A COMMUNITY IN YOUR OWN IMAGE: WITHOUT TALENT - CHANGE OF PLANS - HARDCORE GRID - PRICES HALVED - STAKES DOUBLED|[](https://youtu.be/0wu0jjktu4g)||
+|2023-11-18|IF WE HIT MANA CRYPT, I GIVE AWAY A COLLECTORS BOX - IXALAN OPENING|[](https://youtu.be/f4y_fuvpclu)|Stream went down once. This archive includes both segments.|
+|2023-11-17|DRUNK SPELLING BEE WITH PEOPLE WHO ARE NOT VERY INTELLIGENT|[](https://youtu.be/kx9snlwwz98)||
+|2023-11-15|I  NEED EVERYONE TO DONATE RIGHT NOW TO MY CHARITY I SWEAR TO GOD THIS  MONEY WILL REACH THE CHARITY I AM DONATING IT ALL ASAP GIFTED SUBS PLS|[](https://youtu.be/q5rdi0wdm0k)||
+|2023-11-12|BAN  APPEALS CHAT DECIDES - GETTING HARD IS SOMETHING A LOT OF GUYS STRUGGLE  WITH IF ANYTHING A SOFT PENIS IS IDEAL FOR ALL KINDS OF THINGS|[](https://youtu.be/7npxi3ykq84)||
+|2023-11-10|SSSNIPERWOLF BOUNCING ON BALLS - WOW CLASSIC UPDATE - FISH VIDEO|[](https://youtu.be/vlm4myng-oe)||
+|2023-11-8|I  SPENT 200K ON PROSTITUTION AND NOW I NEED SOMEONE TO PAY MY MORTGAGE  PLEASE RESPOND HELLO? IT SAYS READ DID YOU SEE THE MESSAGE? HELLO?|[](https://youtu.be/p7q0nimmuok)|Stream went down about halfway through. This archive includes both segments.|
+|2023-11-5|MEDIA SHARE SUNDAY BABY|[](https://www.youtube.com/watch?v=yu2cjqwl8os)||
+|2023-11-3|Retirement Stream - It all ends here - I am so sorry|[](https://youtu.be/vxba_kkis6w)||
+|2023-11-1|$5000 COSTUME CONTEST BRACKET THERE CAN ONLY BE ONE WINNER - LEAFBLOWER IS LIVE !BLOWME|[](https://youtu.be/8tgxp5nrlwe)|Stream went down several times towards the end. This archive includes all segments.|
+|2023-10-29|HALLOWEEN STREAM - FACE PAINTING - CANDY TIER LIST - I CAN FINALLY PLAY GAMES|[](https://youtu.be/aicgpyokae0)||
+|2023-10-27|CRINGE YOU DRINK TONIGHT - SICK BUT THE SHOW MUST GO ON - DRINKING HELPS THE FLU|[](https://youtu.be/pr6679b2xdo)|The ending is abrupt. OBS crashed or something so Wubby ended stream there.|
 |2023-10-25|BACK FROM TWITCHCON - GIVING YOU ALL THE DEETS - DONT BREATHE MY AIR POVERTY BOY - THE CAR GOES ZOOM AND MY BALLS STAY EMPTY !GG|[YouTube](https://youtu.be/wbDl0xG5wf8) / [MEGA](https://mega.nz/file/4vBXwbwJ#KgfKpl8rwxY0e0zRbiF0SYR4TfHXq3MT-xUfhzp4ujU)|Blocked on YouTube. Use MEGA link instead.|
-|2023-10-22|MEETUP AT THE GAMER SUPPS BOOTH AT TWITCH CON|[https://youtu.be/JqP7ANosbK8](https://youtu.be/JqP7ANosbK8)||
-|2023-10-22|OPENING TWO UNLIMITED PACKS QUICK STREAM LOSING EVERYTHING BLACK LOTUS|[https://youtu.be/K2OPsfotA6Y](https://youtu.be/K2OPsfotA6Y)||
+|2023-10-22|MEETUP AT THE GAMER SUPPS BOOTH AT TWITCH CON|[](https://youtu.be/jqp7anosbk8)||
+|2023-10-22|OPENING TWO UNLIMITED PACKS QUICK STREAM LOSING EVERYTHING BLACK LOTUS|[](https://youtu.be/k2opsfota6y)||
 |2023-10-18|Today's stream is prerecorded and entirely scripted. What you're about to see is the culmination of months of pre-production and planning.|[YouTube](https://youtu.be/7t7kI7M1b74) / [MEGA](https://mega.nz/file/4vx02ajC#0sT_awIBNrfa8MEawLVjMpK0w09dHwllitIafzeLIH4)|Blocked on YouTube. Use MEGA link instead.|
 |2023-10-15|stream ends when i find true beauty in this world|[YouTube](https://youtu.be/4a7zxiXg3MY) / [MEGA](https://mega.nz/file/R3IjjSIS#2g483UB_pjlhytwYisrP1BRb6ETWktW-lHBHPomXNfo)|Blocked on YouTube. Use MEGA link instead.|
-|2023-10-14|DOCTOR W H OMEGALUL - COLLECTOR BOXES - RETARDIS - SONIC SCREW|[https://youtu.be/rPXOQFuvWNA](https://youtu.be/rPXOQFuvWNA)||
+|2023-10-14|DOCTOR W H OMEGALUL - COLLECTOR BOXES - RETARDIS - SONIC SCREW|[](https://youtu.be/rpxoqfuvwna)||
 |2023-10-13|!GG FRIDAY THE 13TH SCARY SPOOKY NICK OR TREAT LIVE|[https://youtu.be/asm\_d76nohs](https://youtu.be/asm_d76nohs)||
-|2023-10-11|!GG GAMERSUPPS SHAKER RELEASE - HIGH LAUGH YOU LOSE TODAY|[https://youtu.be/Xcw5JNh4hfo](https://youtu.be/Xcw5JNh4hfo)||
+|2023-10-11|!GG GAMERSUPPS SHAKER RELEASE - HIGH LAUGH YOU LOSE TODAY|[](https://youtu.be/xcw5jnh4hfo)||
 |2023-10-8|!GRID NEW AND IMPROVED GRID STREAM - DONATE TO PUT YOUR IMAGE ON SCREEN - ARCHED FEET - BABY BLUE NAIL POLISH - DOUBLE JOINTED DRIP|[YouTube](https://youtu.be/NxuWji7wzC8) / [MEGA](https://mega.nz/file/I6o2jJBJ#y5KncSRoOKMEDkCaNc5kfZm3Ak7gOr0_0lT0Ar0pdbc)|Blocked on YouTube by Weezer (not a joke). Use MEGA link instead.|
-|2023-10-7|OPENING A $35K LEGENDS BOX - MAGIC OPENING - MAGIC ON A SATURDAY - SUB PACK GIVEAWAY|[https://youtu.be/idFQSqvFfsA](https://youtu.be/idFQSqvFfsA)||
-|2023-10-6|WHAT IF WE JUST GOT A LITTLE DRUNK ON A FRIDAY|[https://youtu.be/C01QwcEPFsk](https://youtu.be/C01QwcEPFsk)||
+|2023-10-7|OPENING A $35K LEGENDS BOX - MAGIC OPENING - MAGIC ON A SATURDAY - SUB PACK GIVEAWAY|[](https://youtu.be/idfqsqvffsa)||
+|2023-10-6|WHAT IF WE JUST GOT A LITTLE DRUNK ON A FRIDAY|[](https://youtu.be/c01qwcepfsk)||
 |2023-10-4|FINALLY BACK LETS GO SO MUCH TO DO CRAMMING CONTENT LIKE MOM CRAMS THE GEARSHIFT STRAIGHT UP THE OL|[YouTube](https://youtu.be/nsutGCHoqww) / [MEGA](https://mega.nz/file/h6YiBKaQ#qE34f7EpoCSzBNyMeHYdln3iP3-NZHbb7Lph6pAcKFM)|Blocked on YouTube by Netflix. Use MEGA link instead.|
-|2023-9-29|DOUBLE FEATURE - DOUBLE D'S - DOUBLE TROUBLE - DOUBLE CONTENT - DOUBLE SUBS - GUY WITH TWO DICKS ON REDDIT - DOUBLE PEN - DOUBLING SEASON|[https://youtu.be/raMZ4A0PygY](https://youtu.be/raMZ4A0PygY)|Stream went down once. This archive includes both segments.|
-|2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[https://youtu.be/9FuvmQGG3jo](https://youtu.be/9FuvmQGG3jo)|YouTube stopped processing this video, reuploaded. Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
+|2023-9-29|DOUBLE FEATURE - DOUBLE D'S - DOUBLE TROUBLE - DOUBLE CONTENT - DOUBLE SUBS - GUY WITH TWO DICKS ON REDDIT - DOUBLE PEN - DOUBLING SEASON|[](https://youtu.be/ramz4a0pygy)|Stream went down once. This archive includes both segments.|
+|2023-9-27|PREGNANT  CHARIZARD + RATING YOUR PREGNANT POKEMON + DOWN DOWN DOWN BY THE RIVER   + CS 2? GIFTED SUBS ARE CHEAPER AND NO ONE TOLD ME|[](https://youtu.be/9fuvmqgg3jo)|YouTube stopped processing this video, reuploaded. Includes the pre-stream "I'm gonna end stream" bit at the beginning.|
 |2023-9-24|YOU KNOW WHAT IT IS, WE ARE GONNA DOING, NOT JUST SAYING, DOING TONIGHT, YOLU KNOW IT IS, YOU KNOW HOW HOW IS IT NO BODY EVER ASK HOW IT I|[YouTube](https://youtu.be/aUQKlaK4rdU) / [MEGA](https://mega.nz/file/BjwVjaJB#nkzwmlRRWSNDI91Kkvi0jcPqwjyI3gzm4PLK0dGRuwM)|Blocked by Netflix on YouTube. Use MEGA link instead.|
 |2023-9-22|YOU CRINGE, YOU CHUG, YOU DRINK, YOU DEVELOP A HABIT, START EARLIER IN THE DAY, DRINK MORE, DISREGARD FAMILY, RESPONSIBILITIES SLIP, DIABETE|[YouTube](https://youtu.be/8VDYvy-LDWU) / [MEGA](https://mega.nz/file/Uqw3jRRa#-SJgomUDvVjmJ7_tsaNwa6raUc0k_aurYF8Ax_KMuzU)|Blocked worldwide on YouTube by Blink-182. I shit you not. Use MEGA link instead.|
-|2023-9-20|LOSER GETS HEP C|[https://youtu.be/rOOhzsqNpTE](https://youtu.be/rOOhzsqNpTE)||
-|2023-9-17|PO BOX UNBOXING YOUR MAIL BIG BOOTY LABIAN OPENING WITH LABIAN MEXICAN LABIAN LABIAN|[https://youtu.be/a2zVKfDjQWM](https://youtu.be/a2zVKfDjQWM)|Includes the accidental "No Signal" segment at the end.|
+|2023-9-20|LOSER GETS HEP C|[](https://youtu.be/roohzsqnpte)||
+|2023-9-17|PO BOX UNBOXING YOUR MAIL BIG BOOTY LABIAN OPENING WITH LABIAN MEXICAN LABIAN LABIAN|[](https://youtu.be/a2zvkfdjqwm)|Includes the accidental "No Signal" segment at the end.|
 |2023-9-15|WELLLLLLLLL LOOKS LIKE THIS ONE IS FOR THE BOYS|[YouTube](https://youtu.be/NqOKNa8-jPo) / [MEGA](https://mega.nz/file/9vZWDapa#dnx7TPBGm2tqvfX2tpgTxmg2rddxWiys-o2g0ZRmx7M)|Blocked on YouTube by Netflix. Use MEGA link instead.|
-|2023-9-13|HIGH LAUGH YOU LOSE - UNLIMITED STARTER DECK STORY - GANG GANG|[https://youtu.be/UOVUlLqEiXQ](https://youtu.be/UOVUlLqEiXQ)|Stream went down twice. This archive includes all segments.|
-|2023-9-11|MTG MONDAY - OPENING 14K UNLIMITED STARTER DECK - BLACK LOTUS CHANCE- THIS IS A MISTAKE - PRIMES WELCOME|[https://youtu.be/NhsVf8Tk9HM](https://youtu.be/NhsVf8Tk9HM)|Stream went down once. This archive includes both segments.|
+|2023-9-13|HIGH LAUGH YOU LOSE - UNLIMITED STARTER DECK STORY - GANG GANG|[](https://youtu.be/uovullqeixq)|Stream went down twice. This archive includes all segments.|
+|2023-9-11|MTG MONDAY - OPENING 14K UNLIMITED STARTER DECK - BLACK LOTUS CHANCE- THIS IS A MISTAKE - PRIMES WELCOME|[](https://youtu.be/nhsvf8tk9hm)|Stream went down once. This archive includes both segments.|
 |2023-9-10|MEDIA SHARE - NO VIEW MINIMUM - OPEN NOW - DONT GET DRUNK CHALLENGE|[YouTube](https://youtu.be/krvQpHRQ92g) / [MEGA](https://mega.nz/file/c7h02RYQ#88boT-mQj6Z1encShas63HN8mS5gK_EaRokLMlHC_-Y)|VOD got blocked in most countries on YouTube. Use MEGA link instead.|
 |2023-9-8|GUARANTEE THIS CHAT WILL REMAIN CIVIL AS WE JOURNEY TO FIND THE GREATEST 'THING'. NO ONE WILL BE OFFENDED. NO ONE IS MAD. WHY ARE YOU MAD|[YouTube](https://youtu.be/kjQRU__VvJM) / [MEGA](https://mega.nz/file/Z2JSzJSR#yh3ABA_rVb0U1YlKEhTEYFMbSf-S3jXBfZArNpkjMXQ)|Netflix blocked the VOD on YouTube. Use MEGA link instead.|
-|2023-9-6|I WILL NOT HARASS OR ATTACK A SINGLE CHINESE PERSON THIS STREAM|[https://youtu.be/qKj5yyBLwfI](https://youtu.be/qKj5yyBLwfI)||
-|2023-9-4|OPENING 15K BOX OF MAGIC CARDS FOR LIKE A $20 RETURN PRIME SUBS SOFTEN THE BLOW|[https://youtu.be/-FYjOj9RxS8](https://youtu.be/-FYjOj9RxS8)||
-|2023-9-3|HALAL COOK OFF WITH MY DAD|[https://youtu.be/FOBcJVGfphk](https://youtu.be/FOBcJVGfphk)||
+|2023-9-6|I WILL NOT HARASS OR ATTACK A SINGLE CHINESE PERSON THIS STREAM|[](https://youtu.be/qkj5yyblwfi)||
+|2023-9-4|OPENING 15K BOX OF MAGIC CARDS FOR LIKE A $20 RETURN PRIME SUBS SOFTEN THE BLOW|[](https://youtu.be/-fyjoj9rxs8)||
+|2023-9-3|HALAL COOK OFF WITH MY DAD|[](https://youtu.be/fobcjvgfphk)||
 |2023-9-1|PAPER PLATES|[YouTube](https://youtu.be/rnFex-lY-VQ) / [MEGA](https://mega.nz/file/t2JQEKZB#YemzInAg9qBsgxoVl2ls0JG0pBr9FZasV46J6NmqFvw)|Blocked on YT by Netflix. Use MEGA link instead.|
-|2023-8-30|MATCHING  THE VIEWER BY FEET ALONE - I BUILT A CAREER OVER 6 YEARS FOR THIS  MOMENT RIGHT HERE - COLLECTED SO MANY FEET PICS - GET BAITED IDIO|[https://youtu.be/CRjcKo5E8UU](https://youtu.be/CRjcKo5E8UU)|Stream went down once. This archive includes both segments.|
-|2023-8-27|FILM CONTEST HONORABLE MENTIONS - SUCKING DOWN THE FATTIEST FART FROM THE THICKEST WOMAN WHO WILL CONSENT|[https://youtu.be/Dbg4Q-iLM5I](https://youtu.be/Dbg4Q-iLM5I)|Stream went down several times. This archive includes all segments.|
+|2023-8-30|MATCHING  THE VIEWER BY FEET ALONE - I BUILT A CAREER OVER 6 YEARS FOR THIS  MOMENT RIGHT HERE - COLLECTED SO MANY FEET PICS - GET BAITED IDIO|[](https://youtu.be/crjcko5e8uu)|Stream went down once. This archive includes both segments.|
+|2023-8-27|FILM CONTEST HONORABLE MENTIONS - SUCKING DOWN THE FATTIEST FART FROM THE THICKEST WOMAN WHO WILL CONSENT|[](https://youtu.be/dbg4q-ilm5i)|Stream went down several times. This archive includes all segments.|
 |2023-8-25|BACK BACK BACK TONIGHT WITH DOWN SYNDROME LOCKED AND LOADED|[YouTube](https://youtu.be/LuOBJU8Wgq4) / [MEGA](https://mega.nz/file/Z2I2gbAD#7r0baUtspV17EbL52qZamZggKdzQPBs1lDlNvbWgkKA)|Stream went hard down once. This archive includes both segments. Will likely be blocked on YT by Netflix. Use MEGA link instead.|
 |2023-8-11|The Wubby and Alluux Dubathon|[All Dubathon Segments! - MEGA](https://mega.nz/folder/drJhCQJL#uHMoJGgDcfhoPnDp1t4tAA)|I'm going to be using MEGA for the Dubathon for now. The link goes to a folder with all the segments. I will add more as they become available.|
-|2023-8-9|WILL I GET BANNED RIGHT BEFORE MY SUBATHON? LETS FIND OUT (I REALLY HOPE NOT)|[https://youtu.be/1b42KmPWiEc](https://youtu.be/1b42KmPWiEc)||
+|2023-8-9|WILL I GET BANNED RIGHT BEFORE MY SUBATHON? LETS FIND OUT (I REALLY HOPE NOT)|[](https://youtu.be/1b42kmpwiec)||
 |2023-8-6|MEDIA SHAREEEEEEEEEEEEE|[YouTube](https://youtu.be/pCmmWcmW_G0) / [MEGA](https://mega.nz/file/MyhXnYjS#5RKBpWq-5HkSEaFeb7F_J6PXBcHfLms69qpAN1BnH6M)|Blocked on YouTube. Use MEGA link instead.|
 |2023-8-4|LOCKING GRANDMA IN HER APARTMENT, WELLNESS CHECK SPEEDRUN ANY %, 13 HIDDEN CAMS, TTS IS ENABLED|[YouTube](https://youtu.be/TrHX_Q3SDLA) / [MEGA](https://mega.nz/file/QiJ2RL6B#JGBtjkZ9K8Bjh7phJXgpnUC3Qi0hb01HfmvrkDT2MYo)|Will probably be blocked on YT due to 90DF. If so, use MEGA link instead.|
-|2023-8-2|WUBBY FILM CONTEST TONIGHT IS THE NIGHT THE STARS ARE OUT THE MAGIC IS IN THE AIR MOVIE NIGHT WITH MEN AND WOMEN AND MENWOME|[https://youtu.be/-b5SS0ZQ1Gs](https://youtu.be/-b5SS0ZQ1Gs)||
+|2023-8-2|WUBBY FILM CONTEST TONIGHT IS THE NIGHT THE STARS ARE OUT THE MAGIC IS IN THE AIR MOVIE NIGHT WITH MEN AND WOMEN AND MENWOME|[](https://youtu.be/-b5ss0zq1gs)||
 |2023-7-30|I PROMISE I WILL NOT GET STUNLOCKED AND WE WILL GET TO THE CONTENT TONIGHT I SWEAR OR MY SONS NAME ISNT ENWARD HEETLER|[YouTube](https://youtu.be/24e7Rb6MlFc) / [MEGA](https://mega.nz/file/AmxzWQ4Q#b4MyhrLU8JB-9W5WbR6q537yOM7OLfR3vIv15xfXxFA)|Blocked in the US on YouTube (90DF), Use MEGA link instead. / Stream went down, this archive includes both segments.|
-|2023-7-28|MERCH IS LIVE - CATS AND ADOPTIONS AND MAYBE PIKMIN AND MAYBE OTHER SHIT|[https://youtu.be/mC0POQqnTZQ](https://youtu.be/mC0POQqnTZQ)||
-|2023-7-26|CRINGE YOU DRINK - SO MANY BIG ANNOUNCEMENTS - MOD CRAB GAME - HOLY MOTHER OF GOD MARGOT ROBBIE'S FEET DIRTY AS A DOG GRIP GRIP MY D|[https://youtu.be/0OEgI9LujnI](https://youtu.be/0OEgI9LujnI)|Stream went down once. This archive includes all segments of stream.|
+|2023-7-28|MERCH IS LIVE - CATS AND ADOPTIONS AND MAYBE PIKMIN AND MAYBE OTHER SHIT|[](https://youtu.be/mc0poqqntzq)||
+|2023-7-26|CRINGE YOU DRINK - SO MANY BIG ANNOUNCEMENTS - MOD CRAB GAME - HOLY MOTHER OF GOD MARGOT ROBBIE'S FEET DIRTY AS A DOG GRIP GRIP MY D|[](https://youtu.be/0oegi9lujni)|Stream went down once. This archive includes all segments of stream.|
 |2023-7-23|MARGOT ROBBIE IN THAT ONE SCENE FROM THE WOLF OF WALL STREET, ON REPEAT FOR 4 HOURS. THATS IT. THATS THE WHOLE STREAM|[YouTube](https://youtu.be/FcYZkNSFH6w) / [MEGA](https://mega.nz/file/Vih2QAqK#Z4rq_UEAwW1tcZkJChEfMWkxxDEhmAIH3EA-IYQU7e8)|Two cuts in stream (Cox + TOS), this archive includes all segments. Likely to be blocked on YT (90DF), use MEGA link instead.|
-|2023-7-21|SAN DIEGO COMIC CON AT 4PM PST|[https://youtu.be/NM1yt2zmwKc](https://youtu.be/NM1yt2zmwKc)||
-|2023-7-20|DOUGDOUG DRIVE THRU CHALLENGE - AI TTS 1K BITS|[https://youtu.be/o30lwSGecZk](https://youtu.be/o30lwSGecZk)||
-|2023-7-19|SUBATHONS - CONFESSIONS - CONTRACTS - 90 DAYS - DRIVE THRU CHALLENGE TOMORROW 2PM PST|[https://youtu.be/hmy6eWHESyw](https://youtu.be/hmy6eWHESyw)||
-|2023-7-16|FINALLY BACK FROM VACATION - WEAKEST LINK TONIGHT - RETURN OF THE KING|[https://youtu.be/3g44fEb8Cxc](https://youtu.be/3g44fEb8Cxc)|Stream cut a few times in the middle. This archive includes all segments.|
-|2023-7-9|YOU LAUGH YOU LOSE|[https://youtu.be/IwGu6KYy-\_0](https://youtu.be/IwGu6KYy-_0)||
-|2023-7-8|Currently @ TwitchCon Paris, Stay Tuned for Updates|[https://youtu.be/YdFXxbhDGEY](https://youtu.be/YdFXxbhDGEY)|See note in YT vid description for explanation.|
-|2023-7-7|100 SUBS TO FIT THE ENTIRE EIFFEL TOWER IN MY BUNG HOLE YES ITS ALL GOING UP THERE ROOM TO SPARE TWITCHCON PARIS|[https://youtu.be/SSbT0Sgtv4o](https://youtu.be/SSbT0Sgtv4o)||
+|2023-7-21|SAN DIEGO COMIC CON AT 4PM PST|[](https://youtu.be/nm1yt2zmwkc)||
+|2023-7-20|DOUGDOUG DRIVE THRU CHALLENGE - AI TTS 1K BITS|[](https://youtu.be/o30lwsgeczk)||
+|2023-7-19|SUBATHONS - CONFESSIONS - CONTRACTS - 90 DAYS - DRIVE THRU CHALLENGE TOMORROW 2PM PST|[](https://youtu.be/hmy6ewhesyw)||
+|2023-7-16|FINALLY BACK FROM VACATION - WEAKEST LINK TONIGHT - RETURN OF THE KING|[](https://youtu.be/3g44feb8cxc)|Stream cut a few times in the middle. This archive includes all segments.|
+|2023-7-9|YOU LAUGH YOU LOSE|[](https://youtu.be/iwgu6kyy-_0)||
+|2023-7-8|Currently @ TwitchCon Paris, Stay Tuned for Updates|[](https://youtu.be/ydfxxbhdgey)|See note in YT vid description for explanation.|
+|2023-7-7|100 SUBS TO FIT THE ENTIRE EIFFEL TOWER IN MY BUNG HOLE YES ITS ALL GOING UP THERE ROOM TO SPARE TWITCHCON PARIS|[](https://youtu.be/ssbt0sgtv4o)||
 |2023-7-2|MEDIA SHARE - ITS FINALLY TIME - ARABIC VIDEOS WELCOME|[YouTube](https://youtu.be/36lAfI5kfH4) / [MEGA](https://mega.nz/file/o2RlSbxD#-owk8jUVG-JhiYr602CA1ECqxFbWFgc1ysjFo4JwYxE)|UK VOD boys, use MEGA link instead.|
 |2023-6-30|IM JUST SITTING HERE STROKING MY SHIT I GOT LOTION, KICK OFF YOUR SOCKS, TAKE YOUR TOES OUT, MEDIA SHARE THIS SUNDAY YAPPING TODAY|[YouTube](https://youtu.be/4uE0ChPVr1Y) / [MEGA](https://mega.nz/file/02BEXCLY#7JRP-r7S5ZL3rAly1DnAiOZV_Ujw0DVBWN0YKguSY08)|Stream went down \~4 times. This archive includes all segments. Blocked in USA due to 90Day. Use MEGA link instead.|
-|2023-6-28|I BOUGHT EVERY YOUTUBER MERCH AND NOW I AM GOING TO SHIT ON IT - LITERALLY - I WILL BE MAKING A MERCH PILE AND TAKING A SHIT ON IT|[https://youtu.be/H-tgH1mmggw](https://youtu.be/H-tgH1mmggw)|Stream went down partway through. This archive includes both segments.|
-|2023-6-25|10 MILLION DOLLAR HUNT - I WILL PULL THE RING AND SHOW MY PEEN - CAN'T HELP MYSELF, ITS LORD OF THE RINGS TIME|[https://youtu.be/iDfNFX93-oY](https://youtu.be/iDfNFX93-oY)||
-|2023-6-23|YOU LAUGH, YOU LOSE, SMOKE DRUGS, DONT LAUGH, DONT LAUGH, JULIA FOXX UNCUT ASS, IMAGINE AN ASS WITHOUT TWO CHEEKS, ONE CHEEK POOTER|[https://youtu.be/byahG2M4caQ](https://youtu.be/byahG2M4caQ)||
-|2023-6-21|WHICH POPTART FLAVOR IS KING - IF I DONT HAVE THIS LEGO SHARK ON MY DESK BY NEXT WEEK I AM GOING GALACTIC ON LEGO CORP|[https://youtu.be/cvUE-1uskaQ](https://youtu.be/cvUE-1uskaQ)||
-|2023-6-18|THIS SPEEDRUN ENDS WHEN I SHIT MYSELF|[https://youtu.be/F-CTtFJyhew](https://youtu.be/F-CTtFJyhew)||
+|2023-6-28|I BOUGHT EVERY YOUTUBER MERCH AND NOW I AM GOING TO SHIT ON IT - LITERALLY - I WILL BE MAKING A MERCH PILE AND TAKING A SHIT ON IT|[](https://youtu.be/h-tgh1mmggw)|Stream went down partway through. This archive includes both segments.|
+|2023-6-25|10 MILLION DOLLAR HUNT - I WILL PULL THE RING AND SHOW MY PEEN - CAN'T HELP MYSELF, ITS LORD OF THE RINGS TIME|[](https://youtu.be/idfnfx93-oy)||
+|2023-6-23|YOU LAUGH, YOU LOSE, SMOKE DRUGS, DONT LAUGH, DONT LAUGH, JULIA FOXX UNCUT ASS, IMAGINE AN ASS WITHOUT TWO CHEEKS, ONE CHEEK POOTER|[](https://youtu.be/byahg2m4caq)||
+|2023-6-21|WHICH POPTART FLAVOR IS KING - IF I DONT HAVE THIS LEGO SHARK ON MY DESK BY NEXT WEEK I AM GOING GALACTIC ON LEGO CORP|[](https://youtu.be/cvue-1uskaq)||
+|2023-6-18|THIS SPEEDRUN ENDS WHEN I SHIT MYSELF|[](https://youtu.be/f-cttfjyhew)||
 |2023-6-16|TWITCH AUTOPSY - GET A HAIRCUT YOU GREASY WEASEL - THAT HAIRCUT COMMENT IS NOT DIRECTED AT ANYONE DIRECTLY - MOUSEPAD RELEASE W/ BOOB|[YouTube](https://youtu.be/a11fQvpKT6g) / [MEGA](https://mega.nz/file/o7BzGL7R#xZKrELX7jiwlsZOAmtqYHiWfmNyRVVlFiaB-gd0Cb9E)|Blocked in the US (90DF). Use MEGA link instead.|
-|2023-6-14|JUMPING AND FALLING AND CRYING AND KISSING MEN KISSING MOSTLY MEN, BOYS, ADULT BOYS, SUBREDDIT BACK UP DO NOT POST BOOB OR PEEN|[https://youtu.be/2bjaYTD1REs](https://youtu.be/2bjaYTD1REs)||
-|2023-6-11|YOU CRINGE, YOU DRINK, YOU MILES, YOU MORALES, BLACK SPIDERMAN, WEB SLINGING RIGHT INTO GWEN'S COOCHI I POOED MY PANTS 36 MIN INTO THE MOVIE|[https://youtu.be/ZVJFLpxGmyk](https://youtu.be/ZVJFLpxGmyk)||
+|2023-6-14|JUMPING AND FALLING AND CRYING AND KISSING MEN KISSING MOSTLY MEN, BOYS, ADULT BOYS, SUBREDDIT BACK UP DO NOT POST BOOB OR PEEN|[](https://youtu.be/2bjaytd1res)||
+|2023-6-11|YOU CRINGE, YOU DRINK, YOU MILES, YOU MORALES, BLACK SPIDERMAN, WEB SLINGING RIGHT INTO GWEN'S COOCHI I POOED MY PANTS 36 MIN INTO THE MOVIE|[](https://youtu.be/zvjflpxgmyk)||
 |2023-6-9|PAPER THIN CHICKEN CUTLET - POPS FRESH MOZZARELLA (BEST AROUND) - PROSCIUTTO PAPER THIN - NO SALT, PROSCIUTTO SALTY ENOUGH|[YouTube](https://youtu.be/ucfpbelHDoI) / [MEGA](https://mega.nz/file/Yipi3SjA#fIqUWRiupq-vAGKxxf-5oxNwmxgMj1ThIrQs9JxEiCU)|Blocked worldwide on YouTube (90DF). Use MEGA link instead.|
 
 |Stream Date|Title|URL|Notes|
