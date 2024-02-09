@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-2-8|JAPAN STREAM - OLD ENOUGH|[https://youtu.be/prrer07Bodg](https://youtu.be/prrer07Bodg)||
 |2024-2-6|IS ANYONE EVEN HERE - JAPAN STREAM - EXPLORING JAPAN LATER THIS WEEK - CRINGE YOU DRINK NOW|[https://youtu.be/oQHGXFk4p8s](https://youtu.be/oqhgxfk4p8s)|Stream went down about 4 times. This archive includes all segments.|
 |2024-2-2|EARLY BABY - EXPLOSIONS - LATINA TITS- GRADED CARDS - MEAT|[https://youtu.be/I1P3ZBZaS8Q](https://youtu.be/i1p3zbzas8q)||
 |2024-1-31|HIGH LAUGH YOU LOSE - DOUBLE FEATURE - MURDERS AT KARLOV MANOR - TAYLOR DRAMA - YAPATHON|[https://youtu.be/W15KSF3ygaE](https://youtu.be/w15ksf3ygae)||
