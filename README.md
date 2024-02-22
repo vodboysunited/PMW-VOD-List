@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-2-21|A COMPREHENSIVE ANALYSIS ON YOUR CUTE LITTLE FEET !GG !gong|https://youtu.be/Nvl8lCTqvYI|Will likely be blocked on YouTube. Wait for MEGA link.|
 |2024-2-19|MAGIC ON A MONDAY - URZA'S SAGA BREAK - SICK AS A PICKLE|https://youtu.be/6aOU9Dekyf0||
 |2024-2-18|!gong WE ARE BACK FROM JAPAN BABY - AM I SICK? - YAPPA THON - JAPAN RECAP !gg|https://youtu.be/qemW6AzGYk0|Stream went down about 4 times. This archive includes all segments.|
 |2024-2-8|JAPAN STREAM - OLD ENOUGH|[https://youtu.be/prrer07Bodg](https://youtu.be/prrer07Bodg)||
