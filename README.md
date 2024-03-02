@@ -13,7 +13,8 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2024-2-28|AHHHHHHH WORK WORK GRINDSET ALL TO GET FEET ALL FOR THE FEET FEET GRIND THEY CALL ME PED EGG JASMINE FEET|https://youtu.be/LvSSXq019kY|Will probably get blocked on YouTube. Wait for MEGA link|
+|2024-3-1|GOLDEN KAPA GO GO G EXCITEMENT, SCARY STUFF, GONGS, NORTH KOREAN BITCHESWOMEN IN POOLS, BASKETBALL AND LEBRON JOINING US IN STUDIO !GG !GONG|https://youtu.be/3rJ0XxRysfk||
+|2024-2-28|AHHHHHHH WORK WORK GRINDSET ALL TO GET FEET ALL FOR THE FEET FEET GRIND THEY CALL ME PED EGG JASMINE FEET|[YouTube](https://youtu.be/LvSSXq019kY) / [MEGA](https://mega.nz/file/k65xiS4B#A4zMGnDdfGoz6X79DiTyTSfit9oLxF5UPRqmk69El7I)|Blocked in the US. Use VPN or MEGA link.|
 |2024-2-25|WEAKEST LINK SEMI FINALS - ALL NEW CAST - RACIST DOGS - WHO IS THE DUMBEST IN THIS CHAT - WHO IS THE SMARTEST @ alluux !GG !gong|https://youtu.be/TTvIqBtIU5w||
 |2024-2-23|SPEEDRUN RACE AGAINST LOSER DIES, EXECUTED LIVE THIS IS NOT A JOKE ONE WILL REMAIN ALL SUBS GO TO THE WINNER LOSER IS KILLE @ alluux !GG !gong|https://youtu.be/pgWwBECAFk4||
 |2024-2-21|A COMPREHENSIVE ANALYSIS ON YOUR CUTE LITTLE FEET !GG !gong|[YouTube](https://youtu.be/Nvl8lCTqvYI) / [MEGA](https://mega.nz/file/5ioFSQBA#YHvvx8WYJj-volUM9Jok5LHaGX62BRFNPqTwlqVVNAI)|Will likely be blocked on YouTube. Use MEGA link instead.|
