@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-3-6|LAXATIVES STAR WARS AND BEER AND MARIO KART AND CHINO AND LADIES AND !GG|https://youtu.be/AlhPjklEsjI|Will probably get blocked in the US on YouTube. Wait for MEGA link or use VPN|
 |2024-3-3|HIGH LAUGH YOU LOSE BACK BABY KICK BACK RELAX FEET UP I WILL WIN VOTE ON ME TO WIN I WONT LET YOU DOWN !GG !GONG|https://youtu.be/2l9snrr905o||
 |2024-3-1|GOLDEN KAPA GO GO G EXCITEMENT, SCARY STUFF, GONGS, NORTH KOREAN BITCHESWOMEN IN POOLS, BASKETBALL AND LEBRON JOINING US IN STUDIO !GG !GONG|https://youtu.be/3rJ0XxRysfk||
 |2024-2-28|AHHHHHHH WORK WORK GRINDSET ALL TO GET FEET ALL FOR THE FEET FEET GRIND THEY CALL ME PED EGG JASMINE FEET|[YouTube](https://youtu.be/LvSSXq019kY) / [MEGA](https://mega.nz/file/k65xiS4B#A4zMGnDdfGoz6X79DiTyTSfit9oLxF5UPRqmk69El7I)|Blocked in the US. Use VPN or MEGA link.|
