@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-3-13|YUB YUB YUB YUB - MEDIA SHARE WRAP UP - FOOT OLYMPICS (LADIES ONLY) - FINSTER COCKADOODLE !gg|https://youtu.be/k9t1g5zlYuE|Will likely be blocked on YouTube. Wait for MEGA link.|
 |2024-3-10|NO VIEW MINIMUM MEDIA SHARE !media !gg|[YouTube](https://youtu.be/3DG-2mdMAN0) / [MEGA](https://mega.nz/file/BjAkAD6R#fLyKM-wtWHXWhnzI0dHUweR-GzYxgL4wq7344pMh958)|Blocked on YouTube. Use MEGA link instead.|
 |2024-3-8|OPENING ALPHA STARTER - HISTORIC OPENING - MTG - OLDEST SET AND NEWEST SET DOUBLE FEATURE - BLACK LOTUS BLACKER THAN BLACK|https://youtu.be/u5303Gftj14||
 |2024-3-6|LAXATIVES? STAR WARS AND BEER AND MARIO KART AND CHINO AND LADIES AND !GG|[YouTube](https://youtu.be/AlhPjklEsjI) / [MEGA](https://mega.nz/file/43JHBYoI#H7XAAxt0xsPsgKu7RCa2hwMjMU_RFH9nLhzB8iC7Sf8)|Blocked worldwide on YouTube. Use MEGA link instead.|
