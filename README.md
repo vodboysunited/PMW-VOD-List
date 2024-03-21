@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2024-3-20|DOUBLE FEATURE - OPENING A BETA STARTER DECK FOR THE BOYS - LOTUS PULL OR DEATH - YAP AFTER - 90 DAYS !GG|https://youtu.be/zBRZO7GSwcU|Stream got cut several times (booba and F's). This archive contains all segments. Will likely be blocked on YouTube. Wait for MEGA link.|
+|2024-3-20|DOUBLE FEATURE - OPENING A BETA STARTER DECK FOR THE BOYS - LOTUS PULL OR DEATH - YAP AFTER - 90 DAYS !GG|[YouTube](https://youtu.be/zBRZO7GSwcU) / [MEGA](https://mega.nz/file/46RGFQoD#1AQEyxYsi-_uoucgtVAgWOClfpk-9TbDFVzdh8dKSac)|Stream got cut several times (booba and F's). This archive contains all segments. Blocked in the US on YouTube. Use VPN or MEGA link insead.|
 |2024-3-17|SUPER MARIO 64 VS CHAT - CROWD CONTROL - HELP ME HELP YOU - CONFUSED? REGARDED? USE COMMAND !control !cc !GG|https://youtu.be/_89sNHqZuVg||
 |2024-3-15|DISABLED PEOPLE - CRINGE YOU DRINK - DO NOT CRINGE AT PEOPLE WHO ARE DIFFERENT - DO NOT DRINK - DO NOT COME !GG|https://youtu.be/jnTiIvkfINY||
 |2024-3-13|YUB YUB YUB YUB - MEDIA SHARE WRAP UP - FOOT OLYMPICS (LADIES ONLY) - FINSTER COCKADOODLE !gg|[YouTube](https://youtu.be/k9t1g5zlYuE) / [MEGA](https://mega.nz/file/A2oA1RTC#Dg2MwdcOKVGdQYVAWy2C6Z4bgR4db55fDD4N28sIXqg)|Blocked in the US on YouTube. Use VPN or MEGA link instead.|
