@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-3-24|LADIES NIGHT - CHAT PLEASE LET ME GO ON THIS ONE RANT ONE FOR YOU ONE FOR ME - STUPID GRIP GAME NOT THE GOOD GRIP A MANS GRIP DO IT GRIP !GG|https://youtu.be/Ygtv_wy_Pik|Includes the two extra attempts that happened after stream lol|
 |2024-3-22|YAP YAP YAP - GRABBY HANDS LET ME SQUEEZE YOU BABY - RESPECTFULLY - MAGIC UPDATE - REGARDS !GG|https://youtu.be/aYcaIMmbJVU|Stream went down partway through. This archive includes all segments|
 |2024-3-20|DOUBLE FEATURE - OPENING A BETA STARTER DECK FOR THE BOYS - LOTUS PULL OR DEATH - YAP AFTER - 90 DAYS !GG|[YouTube](https://youtu.be/zBRZO7GSwcU) / [MEGA](https://mega.nz/file/46RGFQoD#1AQEyxYsi-_uoucgtVAgWOClfpk-9TbDFVzdh8dKSac)|Stream got cut several times (booba and F's). This archive contains all segments. Blocked in the US on YouTube. Use VPN or MEGA link insead.|
 |2024-3-17|SUPER MARIO 64 VS CHAT - CROWD CONTROL - HELP ME HELP YOU - CONFUSED? REGARDED? USE COMMAND !control !cc !GG|https://youtu.be/_89sNHqZuVg||
