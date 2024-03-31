@@ -13,7 +13,8 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2024-3-29|MERCH IS FINALLY HERE - PMW.STORE - !MERCH IN CHAT - GO GO GO THIS IS NOT A DRILL - A LITTLE BIT OF LATINA LOVE AFTER - !GG|https://youtu.be/7amtK_EKfis|Stream went down once. This archive includes all segments. Will likely be blocked on YouTube. Wait for MEGA link.|
+|2024-3-31|EASTER SUNDAY - HE HAS RISEN - CHRIST IS NO LONGER EEPY - MERCH !merch - I MISS THE OLD WUBBY AND THATS ON GOD - !GG|pending||
+|2024-3-29|MERCH IS FINALLY HERE - PMW.STORE - !MERCH IN CHAT - GO GO GO THIS IS NOT A DRILL - A LITTLE BIT OF LATINA LOVE AFTER - !GG|[YouTube](https://youtu.be/7amtK_EKfis) / [MEGA](https://mega.nz/file/AnhRhQqL#JzpoqXKPhVngCfPGuiq5QDEYuOWobZXCUez4nfqXaUU)|Stream went down once. This archive includes all segments. Blocked on YouTube in the US. Use VPN or MEGA link instead.|
 |2024-3-27|NICKELODEON GOO - NAMING WOMEN - YAP YAP YAP - CRAMMED STREAM - NO MORE TAINT ON TWITCH - PLASTIC CHAIR META SHATTERED !GG|https://youtu.be/EZCSPdyZqys||
 |2024-3-24|LADIES NIGHT - CHAT PLEASE LET ME GO ON THIS ONE RANT ONE FOR YOU ONE FOR ME - STUPID GRIP GAME NOT THE GOOD GRIP A MANS GRIP DO IT GRIP !GG|https://youtu.be/Ygtv_wy_Pik|Includes the two extra attempts that happened after stream lol|
 |2024-3-22|YAP YAP YAP - GRABBY HANDS LET ME SQUEEZE YOU BABY - RESPECTFULLY - MAGIC UPDATE - REGARDS !GG|https://youtu.be/aYcaIMmbJVU|Stream went down partway through. This archive includes all segments|
