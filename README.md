@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-4-3|THE GANG GETS SPOOKY - KIDS SHOULDNT ACCESS THE INTERNET - ODDJOBS - STUDIO - MERCH - BALLS - NIP-PLE - ARE-OLA - LA-BIA !GG|https://youtu.be/NwNcj3DNGlE||
 |2024-4-1|MAGIC MONDAY - THE ALPHA GRADES ARE HERE - SHOWING OFF MY PET DECKS !GG|https://youtu.be/IOEKhj6NiZ4||
 |2024-3-31|WELCOME TO YOUR QUARTERLY SUBREDDIT YAPATHON - HERE WE GO - DRAMA DRAMA DRAMA - HAPPY EASTER HAS BEEN STOLEN !GG|https://youtu.be/rX-t7Uwxhkc||
 |2024-3-29|MERCH IS FINALLY HERE - PMW.STORE - !MERCH IN CHAT - GO GO GO THIS IS NOT A DRILL - A LITTLE BIT OF LATINA LOVE AFTER - !GG|[YouTube](https://youtu.be/7amtK_EKfis) / [MEGA](https://mega.nz/file/AnhRhQqL#JzpoqXKPhVngCfPGuiq5QDEYuOWobZXCUez4nfqXaUU)|Stream went down once. This archive includes all segments. Blocked on YouTube in the US. Use VPN or MEGA link instead.|
