@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-4-5|PROFESSIONAL LINE, NO B1CHES, NO VIBES, NO SHELTER, VERTICALLY CHALLENGED, THIS IS IT - FOR COUCH COUPLES 90 DAY WILL BE AT END !MERCH !GG|https://youtu.be/J0J2z4kBW7g|Stream went down multiple times. This archive includes all segments. Will get blocked on YouTube. Wait for MEGA link.|
 |2024-4-3|THE GANG GETS SPOOKY - KIDS SHOULDNT ACCESS THE INTERNET - ODDJOBS - STUDIO - MERCH - BALLS - NIP-PLE - ARE-OLA - LA-BIA !GG|https://youtu.be/NwNcj3DNGlE||
 |2024-4-1|MAGIC MONDAY - THE ALPHA GRADES ARE HERE - SHOWING OFF MY PET DECKS !GG|https://youtu.be/IOEKhj6NiZ4||
 |2024-3-31|WELCOME TO YOUR QUARTERLY SUBREDDIT YAPATHON - HERE WE GO - DRAMA DRAMA DRAMA - HAPPY EASTER HAS BEEN STOLEN !GG|https://youtu.be/rX-t7Uwxhkc||
