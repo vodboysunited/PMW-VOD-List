@@ -13,7 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
-|2024-4-14|I LIVED BlTCH- LETS SEE IF WE CAN MAKE FOR SOME YAP AND SOME 90 DAY|https://youtu.be/sA1_mCLDUt8|Stream went down once. This archive includes both segments. Will likely be blocked on YouTube. Wait for MEGA link.|
+|2024-4-14|I LIVED BlTCH- LETS SEE IF WE CAN MAKE FOR SOME YAP AND SOME 90 DAY|[YouTube](https://youtu.be/sA1_mCLDUt8) / [MEGA](https://mega.nz/file/s6oFgJSQ#-NXVxrNAw4fnAXBmgqnVXrNBQcYmwf5FfS_ePDXE9Zg)|Stream went down once. This archive includes both segments. Will likely be blocked on YouTube. Use MEGA link instead.|
 |2024-4-10|BREAKING MY SILENCE - CORNERED AND FORCED TO EJAC - MERCH DRAMA - HLYL - I AM MEDICALLY REGARDED !GG|https://youtu.be/4XNPmUeTsIM||
 |2024-4-5|PROFESSIONAL LINE, NO B1CHES, NO VIBES, NO SHELTER, VERTICALLY CHALLENGED, THIS IS IT - FOR COUCH COUPLES 90 DAY WILL BE AT END !MERCH !GG|[YouTube](https://youtu.be/J0J2z4kBW7g) / [MEGA](https://mega.nz/file/UipmmDxA#Fl_SLJLvPHGt9ieWE0TpNVqdZHzyVQ6OIkten1-F3oo)|Stream went down multiple times. This archive includes all segments. Blocked in the US on YT. Use VPN or MEGA link instead.|
 |2024-4-3|THE GANG GETS SPOOKY - KIDS SHOULDNT ACCESS THE INTERNET - ODDJOBS - STUDIO - MERCH - BALLS - NIP-PLE - ARE-OLA - LA-BIA !GG|https://youtu.be/NwNcj3DNGlE||
