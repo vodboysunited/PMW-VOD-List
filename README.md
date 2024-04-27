@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-4-26|SHORT STREAM GONNA TRY MY BEST|https://youtu.be/4d-QQwFNo04|Will likely be blocked on YouTube. Wait for MEGA link.|
 |2024-4-17|KEEP GRINDING - KEEP GAMBLING - KEEP GOONING - KEEP GIFTING - THE BOYS ARE BACK IN TOWN - DUNE 2 REVIEW MIGHT KILL APRIL OF LOVE|[YouTube](https://youtu.be/udNZAFM058U) / [MEGA](https://mega.nz/file/52gzgCDA#RjaU3PI0ANvBdfOHBGFEJSvvFCXA4bgaYZFYXislsgU)|Stream went down once. This archive includes all segments. Blocked on YouTube. Use MEGA link instead.|
 |2024-4-15|YEE HAW BABY - ITS COWBOY TIME - NO EYE DILATION MEANS MAGIC ON A MONDAY - SHORT OUTLAWS OPENING|https://youtu.be/ZzBhMkrqh6U|Stream went down once. This archive includes both segments.|
 |2024-4-14|I LIVED BlTCH- LETS SEE IF WE CAN MAKE FOR SOME YAP AND SOME 90 DAY|[YouTube](https://youtu.be/sA1_mCLDUt8) / [MEGA](https://mega.nz/file/s6oFgJSQ#-NXVxrNAw4fnAXBmgqnVXrNBQcYmwf5FfS_ePDXE9Zg)|Stream went down once. This archive includes both segments. Blocked in the US on YT. Use VPN or MEGA link instead.|
