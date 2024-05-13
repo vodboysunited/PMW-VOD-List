@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-5-13|ALPHA STARTER DECK? UNLIMITED STARTER DECKS? SLOTS AVAILABLE MAGICMONDAY.SHOP LETS GO|https://youtu.be/Kl9sLSO3cnw||
 |2024-5-12|FINISHING MEDIA SHARE - BEARS AND WOMEN - UNABLE TO EJAC - HAPPY MOTHERS DAY - NEW CHAT CHALLENGE !gg|[YouTube](https://youtu.be/5zeCja5pLYM) / [MEGA](https://mega.nz/file/w6QzBB4a#KhxAbeq372Bbgo7WQUgtXEZnX6F2FY8qyAIgjf9w7iA)|Blocked on YouTube. Use MEGA link instead.|
 |2024-5-10|HIGH LAUGH YOU LOSE AND YES DADDY|https://youtu.be/v7BjZ6EJqac||
 |2024-5-8|CHAT CHOOSES THE FATE TONIGHT - WE GETTING PANA BABES OR WHITE PEOPLE - WE GETTING ADVENTURES OR DRAMA - WE GETTING CHICKENPANTS OR|[YouTube](https://youtu.be/o5U5i5Lyx6U) / [MEGA](https://mega.nz/file/EnQhjShC#JewejUtiEdQpxgUSt59AEEKgD2nQyW6TSnfIJs0cNHw)|Blocked in the US on YT. Use VPN or MEGA link instead.|
