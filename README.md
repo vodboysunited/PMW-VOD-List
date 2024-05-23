@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-5-22|BULLYING INFANTS - RECAPPING REDDIT - GALVANIZED SQUARE STEEL - UNTIL DAWN AFTER YAPPATHON|https://youtu.be/L2pd-jeXoAE||
 |2024-5-20|ALPHA STARTER DECK BREAK TODAY - CHAT GETS A SLOT - BLACK LOTUS? POWER? YES. - HISTORY MADE - BACKUP STARTER JUST IN CASE|https://youtu.be/sJRFo7xZ2bg||
 |2024-5-15|DOUBLE FEATURE BABY - TELL ALL PART 2 - ALL THE SPICY THIRD WORLD DRAMA - DABBLING IN UNTIL DAWN AFTER - HOUSEKEEPING !GG|[YouTube](https://youtu.be/3j78KQu7kmU) / [MEGA](https://mega.nz/file/YyxnEaqB#SdR-TV4vds5OsMEwJtG2irhXqlDC_N-RhBcHFTXoDOo)|Blocked on YouTube in the US. Use VPN or MEGA link instead.|
 |2024-5-13|ALPHA STARTER DECK? UNLIMITED STARTER DECKS? SLOTS AVAILABLE MAGICMONDAY.SHOP LETS GO|https://youtu.be/Kl9sLSO3cnw||
