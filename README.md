@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-10|BETA BOOSTER - UNLIMITED STARTER - MAGIC MONDAY IN THESE BALLS !GG|https://youtu.be/WVKag_dscCw||
 |2024-6-9|SEX WITH MEN AS A MAN - SEX WITH MEN AS A MAN - SEX WITH MEN AS A MAN - SEX WITH MEN AS A MAN - SEX WITH MEN AS A MAN - SEX WITH MEN AS !GG|https://youtu.be/I6mDm1vj9O4||
 |2024-6-7|FINALLY DOING IT - CHAT HAS BEEN ASKING - ITS FINALLY TIME - WHO CARES ABOUT MEETING A DOLPHIN THIS IS MORE IMPORTANT - THONGS WELCOME !GG|[YouTube](https://youtu.be/MwseO39E2YY) / [MEGA](https://mega.nz/file/puIQkYZZ#SsDix-6FZ-hnKuzaZ1dso6uHGk8n1Fke2NtFvQFh-Ok)|Blocked on YouTube. Use MEGA link instead.|
 |2024-6-5|ITS FINALLY DAWN - ABSOLUTELY NO GOON CONVERSATIONS TONIGHT PLEASE - MET A DOLPHIN !GG|https://youtu.be/scPykQE8At8||
