@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-19|TIME TO GET SPOOKY - JAPANESE MEN WITH MIDDLE SCHOOL GIRLS - CLOSET ICE CREAM !GG|https://youtu.be/EE4x6JKw8mM||
 |2024-6-17|MAGIC MONDAY BUT IF WE HIT BIG WE KEEP GOING !GG|https://youtu.be/NMlNTX7rJA0||
 |2024-6-16|YAP YAP YAP YAP - EXCLUSIVE - EARLY ACCESS - LIVE AND HAPPENING - WORLD PREMIER - !GG|https://youtu.be/wMh3VP_Yylo||
 |2024-6-14|THE DRAMA DONT STOP - AUTISTIC BIRTHDAYS - THE QUARRY - GOONING WITH THE CEO -GAMERSUPPS - !GG|https://youtu.be/k81QLHinSI4||
