@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-23|!media NO VIEW MINIMUM MEDIA SHARE - ITS THAT TIME BABY - SHOW ME WHAT YOU GOT !GG|https://youtu.be/J78qMDU366c||
 |2024-6-21|SMALL YET POWERFUL PROSTATE MASSAGER IN MY CAVITY THAT BLOWS UP WITH EVERY DEATH - ELDEN RING DLC ITS GO TIME - STARFORGE PC TOO !GG|https://youtu.be/folYc-KkQd8|Stream went down about 10 times. This archive includes ALL segments.|
 |2024-6-19|TIME TO GET SPOOKY - JAPANESE MEN WITH MIDDLE SCHOOL GIRLS - CLOSET ICE CREAM !GG|https://youtu.be/EE4x6JKw8mM||
 |2024-6-17|MAGIC MONDAY BUT IF WE HIT BIG WE KEEP GOING !GG|https://youtu.be/NMlNTX7rJA0||
