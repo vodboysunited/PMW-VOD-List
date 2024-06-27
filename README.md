@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-26|DOC KIDINSPECT - THE QUARRY - MAYBE SOME RINGS !GG|https://youtu.be/SpWNHsHo_FM||
 |2024-6-24|BETA STARTER DECK BREAK FOR SALE - SOMETHING NEW BABY - FUN QUICK MM MAGICMONDAY.SHOP !GG|https://youtu.be/U5oGUOXw_Uc||
 |2024-6-23|!media NO VIEW MINIMUM MEDIA SHARE - ITS THAT TIME BABY - SHOW ME WHAT YOU GOT !GG|[YouTube](https://youtu.be/J78qMDU366c) / [MEGA](https://mega.nz/file/9iQiRZSb#Jt6g2XdPcoJiV5D-k3RRhFHM7upBnZsKxdDJ4dC2WLA)|Blocked on YouTube. Use MEGA link instead.|
 |2024-6-21|SMALL YET POWERFUL PROSTATE MASSAGER IN MY CAVITY THAT BLOWS UP WITH EVERY DEATH - ELDEN RING DLC ITS GO TIME - STARFORGE PC TOO !GG|https://youtu.be/folYc-KkQd8|Stream went down about 10 times. This archive includes ALL segments.|
