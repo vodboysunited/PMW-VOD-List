@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-28|WHO IN THIS CHAT HAS THE WORST TATTOO? - BABES BE GONE - BOYS ONLY - THICK MEN ON THE SCENE - CHICKS WITH DICKS ALLOWED|https://youtu.be/GpJXKyArNyI||
 |2024-6-26|DOC KIDINSPECT - THE QUARRY - MAYBE SOME RINGS !GG|https://youtu.be/SpWNHsHo_FM||
 |2024-6-24|BETA STARTER DECK BREAK FOR SALE - SOMETHING NEW BABY - FUN QUICK MM MAGICMONDAY.SHOP !GG|https://youtu.be/U5oGUOXw_Uc||
 |2024-6-23|!media NO VIEW MINIMUM MEDIA SHARE - ITS THAT TIME BABY - SHOW ME WHAT YOU GOT !GG|[YouTube](https://youtu.be/J78qMDU366c) / [MEGA](https://mega.nz/file/9iQiRZSb#Jt6g2XdPcoJiV5D-k3RRhFHM7upBnZsKxdDJ4dC2WLA)|Blocked on YouTube. Use MEGA link instead.|
