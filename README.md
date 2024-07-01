@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-6-30|WILL BE LATE, ON THE PHONE WITH COX, HUGE ISP DRAMA|https://youtu.be/W03PR9eoaSw||
 |2024-6-28|WHO IN THIS CHAT HAS THE WORST TATTOO? - BABES BE GONE - BOYS ONLY - THICK MEN ON THE SCENE - CHICKS WITH DICKS ALLOWED|https://youtu.be/GpJXKyArNyI||
 |2024-6-26|DOC KIDINSPECT - THE QUARRY - MAYBE SOME RINGS !GG|https://youtu.be/SpWNHsHo_FM||
 |2024-6-24|BETA STARTER DECK BREAK FOR SALE - SOMETHING NEW BABY - FUN QUICK MM MAGICMONDAY.SHOP !GG|https://youtu.be/U5oGUOXw_Uc||
