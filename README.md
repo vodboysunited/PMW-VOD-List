@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-1|MTG BETA OPENING + ASSASSINS CREED COLLECTOR BOXES + THESE BALLS + YOUR MOUTH|https://youtu.be/t_gUoD6gJOg||
 |2024-6-30|WILL BE LATE, ON THE PHONE WITH COX, HUGE ISP DRAMA|https://youtu.be/W03PR9eoaSw||
 |2024-6-28|WHO IN THIS CHAT HAS THE WORST TATTOO? - BABES BE GONE - BOYS ONLY - THICK MEN ON THE SCENE - CHICKS WITH DICKS ALLOWED|https://youtu.be/GpJXKyArNyI||
 |2024-6-26|DOC KIDINSPECT - THE QUARRY - MAYBE SOME RINGS !GG|https://youtu.be/SpWNHsHo_FM||
