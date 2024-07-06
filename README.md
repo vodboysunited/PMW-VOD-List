@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-5|PO BOX STREAM !GG|https://youtu.be/6J2_2YyvQj0||
 |2024-7-3|DOUBLE FEATURE - DOUBLE TROUBLE - DOUBLE TITS - HIGH LAUGH YOU LOSE - FINISH THE QUARRY IF WE HAVE TIME|https://youtu.be/AYXaPoyNiXc||
 |2024-7-1|MTG BETA OPENING + ASSASSINS CREED COLLECTOR BOXES + THESE BALLS + YOUR MOUTH|https://youtu.be/t_gUoD6gJOg||
 |2024-6-30|WILL BE LATE, ON THE PHONE WITH COX, HUGE ISP DRAMA|https://youtu.be/W03PR9eoaSw||
