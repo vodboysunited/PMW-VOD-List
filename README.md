@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-7|THE WAIT IS OVER - A STREAM FOR THE PEOPLE BY THE PEOPLE - GRAB YOUR SNACKIES - BIONCLE 2 HAS FINALLY LANDED !GG|https://youtu.be/rB_XZZQJQ48||
 |2024-7-5|PO BOX STREAM !GG|https://youtu.be/6J2_2YyvQj0||
 |2024-7-3|DOUBLE FEATURE - DOUBLE TROUBLE - DOUBLE TITS - HIGH LAUGH YOU LOSE - FINISH THE QUARRY IF WE HAVE TIME|https://youtu.be/AYXaPoyNiXc||
 |2024-7-1|MTG BETA OPENING + ASSASSINS CREED COLLECTOR BOXES + THESE BALLS + YOUR MOUTH|https://youtu.be/t_gUoD6gJOg||
