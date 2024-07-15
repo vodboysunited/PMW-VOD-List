@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-14|INDIAN PEOPLE - WOMEN - MR TEETH - DOWN SYNDROME - CRINGE YOU DRINK AT END|https://youtu.be/ws9hBiMlXtk|
 |2024-7-12|DRONE STRIKES - PERRY TITTIES - MAGIC - SENILE AND PENILE - JAPANESE COFFEE GIRLS|https://youtu.be/-3Xlbb-EZZk||
 |2024-7-10|NEW GLORG GAMES STARTS TODAY - YAPP AT THE TOP - WILL NOT KILL ANYONE !GG|[YouTube](https://youtu.be/ZJU7ibP4irQ) / [MEGA](https://mega.nz/file/M3h1xbIL#ut3MrMF5aPVNbVCj4EXdXcx_s6Xz2vbtWBcOMyzgomQ)|Blocked on YouTube. Use MEGA link instead.|
 |2024-7-8|PORTAL THREE KINGDOMS BREAK AVAILABLE NOW -MAGIC ON A MONDAY - LEARN TO PLAY MAGIC - MAYBE SOME SPELL TABLE !GG|https://youtu.be/U9GjfV3JGIs||
