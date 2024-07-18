@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-17|TODAY YOU WILL BECUM HUMAN - SCARIEST VIEWER - PAPA WUBBS !gg|https://youtu.be/xlbCXg3zh_Q||
 |2024-7-15|WUBBY MAGIC MONDAY - HUNTING FOR THE IMPERIAL SEAL - MAYBE SOME LEGACY IDK|https://youtu.be/21HECxZzIlQ||
 |2024-7-14|INDIAN PEOPLE - WOMEN - MR TEETH - DOWN SYNDROME - CRINGE YOU DRINK AT END|https://youtu.be/ws9hBiMlXtk|
 |2024-7-12|DRONE STRIKES - PERRY TITTIES - MAGIC - SENILE AND PENILE - JAPANESE COFFEE GIRLS|https://youtu.be/-3Xlbb-EZZk||
