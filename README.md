@@ -13,6 +13,7 @@ Check Wubby's Twitch page first and if the VOD is available there, go watch it t
 
 |Stream Date|Title|URL|Notes|
 |:-|:-|:-|:-|
+|2024-7-21|LIVE EARLY - NO MATTER WHAT THIS STREAM ENDS AT 7:45PM PST THE LATEST|https://youtu.be/PW0Wqt9_nhI||
 |2024-7-19|YOUTUBE TITTIES - MORE TY DRAMA - GINGERS ARE A PROTECTED CLASS - COMPUTERS EVERYWHERE ARE BLUE - FINISH MEDIA SHARE !gg|https://youtu.be/WRgpd7z9x_c||
 |2024-7-17|TODAY YOU WILL BECUM HUMAN - SCARIEST VIEWER - PAPA WUBBS !gg|https://youtu.be/xlbCXg3zh_Q||
 |2024-7-15|WUBBY MAGIC MONDAY - HUNTING FOR THE IMPERIAL SEAL - MAYBE SOME LEGACY IDK|https://youtu.be/21HECxZzIlQ||
